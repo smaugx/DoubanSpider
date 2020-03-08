@@ -7,6 +7,7 @@ import time
 import os
 from bs4 import BeautifulSoup
 import sconfig
+import json
 
 import pdb
 
@@ -159,10 +160,11 @@ class DouBan(object):
 
 def run():
     #def __init__(self, cookies, groups, locations, house, date = 7,  filters = []):
-    cookies = 'bid=NnWmfbWjDuw; ll="108090"; __utmc=30149280; _vwo_uuid_v2=DD4A599B6A1D9A78068681B1E6AFC3437|3bd6e1c3d7a882a5d1cdc55557f126f9; __utmz=30149280.1573923186.9.8.utmcsr=baidu|utmccn=(organic)|utmcmd=organic; push_noty_num=0; push_doumail_num=0; __utmv=30149280.11444; douban-profile-remind=1; ct=y; _pk_ref.100001.8cb4=%5B%22%22%2C%22%22%2C1583655226%2C%22https%3A%2F%2Fwww.baidu.com%2Flink%3Furl%3DnXHm2T5UnJGLYwHJQw2VueUfu0Q0d9dC5yvS1WWM8kAN1giCDLcza3l_XoYN8Qpc%26wd%3D%26eqid%3Df4ff177600439ead000000065dd02963%22%5D; _pk_ses.100001.8cb4=*; __utma=30149280.61368216.1570427567.1583599195.1583655228.11; dbcl2="114442820:KECpLgzwx0I"; ck=phtH; ap_v=0,6.0; _ga=GA1.2.61368216.1570427567; _gid=GA1.2.560151315.1583655278; gr_user_id=5cc5b7a8-ce11-44c9-aa41-5025acf0a7da; gr_session_id_22c937bbd8ebd703f2d8e9445f7dfd03=b95be22e-9e95-47ef-952d-4198b5fcf1df; gr_cs1_b95be22e-9e95-47ef-952d-4198b5fcf1df=user_id%3A1; gr_session_id_22c937bbd8ebd703f2d8e9445f7dfd03_b95be22e-9e95-47ef-952d-4198b5fcf1df=true; __utmt=1; _pk_id.100001.8cb4=d7ef3f666b31efd4.1570427566.6.1583656610.1583601758.; __utmb=30149280.70.5.1583656610483'
-    groups = [145219]
-    locations = ['翠苑', '大悦城', '学院路地铁口', '庆隆苑', '支付宝', '黄龙', '华星', '丰潭路地铁口']
-    house = ['一室']
+    cookies     = sconfig.cookies
+    groups      = sconfig.groups 
+    locations   = sconfig.locations
+    house       = sconfig.house 
+
     douban = DouBan(cookies, groups, locations, house)
     results = douban.spider_group(145219)
     print(json.dumps(results, indent = 4))
