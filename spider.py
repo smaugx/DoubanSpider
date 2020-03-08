@@ -8,6 +8,8 @@ import os
 from bs4 import BeautifulSoup
 import sconfig
 import json
+import threading
+import queue
 
 import pdb
 
@@ -43,11 +45,74 @@ class DouBan(object):
         self.ss_.mount('http://', HTTPAdapter(max_retries=3))
         self.ss_.mount('https://', HTTPAdapter(max_retries=3))
 
+        self.topics_excluded_lock_ = threading.Lock()
+        # filter topic_url visited
+        self.topics_excluded_ = []
+        self.topics_excluded_file_ = '/tmp/doubanzufang.spider.topics.excluded'
+
+        # store topic_item what I want
+        self.topics_satisfied_queue_ = queue.Queue(1000)
+        self.topics_satisfied_file_ = '/tmp/doubanzufang.spider.topics.satisfied'
+
+        self.inited_ = False
+
+        return
+
+    def init(self):
+        if self.inited_:
+            return True
+        with self.topics_excluded_lock_:
+            if not os.path.exists(self.topics_excluded_file_):
+                return True
+            with open(self.topics_excluded_file_, 'r') as fin:
+                self.topics_excluded_ = json.loads(fin.read())
+                print('DouBanSpider init, load {0} topics_excluded'.format(len(self.topics_excluded_)))
+                fin.close()
+        return True
+
+    def dump(self):
+        while True:
+            print('in dump')
+            with self.topics_excluded_lock_:
+                with open(self.topics_excluded_file_, 'w') as fout:
+                    fout.write(json.dumps(self.topics_excluded_))
+                    print('dump topics_excluded to file, size is {0}'.format(len(self.topics_excluded_)))
+                    fout.close()
+            item = self.topics_satisfied_queue_.get(block = True)
+            with open(self.topics_satisfied_file_, 'a') as fout:
+                fout.write(json.dumps(item))
+                print('dump topics_satisfied to file, topic: {0}'.format(item.get('url')))
+                fout.close()
+            time.sleep(10)
+
+
+
+    def add_excluded_topic(self, topic_url):
+        with self.topics_excluded_lock_:
+            self.topics_excluded_.append(topic_url)
+        return
+
+    def check_has_topic(self, topic_url):
+        with self.topics_excluded_lock_:
+            if topic_url in self.topics_excluded_:
+                return True
+            else:
+                return False
+        return False
+
+    def add_satisfied_topic(self, topic_item):
+        self.topics_satisfied_queue_.put(topic_item, block = False, timeout = 1)
         return
 
     def spider_topic(self, topic):
         results = []
         topic_url = topic.get('url')
+
+        if self.check_has_topic(topic_url):
+            return False
+        else:
+            self.add_excluded_topic(topic_url)
+
         if not topic_url:
             print("topic_url(empty) invalid")
             return False 
@@ -97,78 +162,104 @@ class DouBan(object):
         results = []
         if not group:
             print("group(empty) invalid")
-            return results
+            return
         start = 0
         time_step = 0.5
         while True:
-            topic_list = []
-            url = 'https://www.douban.com/group/{0}/discussion?start={1}'.format(group, start)
-            r = self.ss_.get(url, headers = self.headers_)
-            now_time = int(time.time())
-            if r.status_code == 200:
-                soup = BeautifulSoup(r.text, 'lxml')
-                trs = soup.find_all('tr')
-                for item in trs:
-                    if (len(item) < 4):
+            try:
+                topic_list = []
+                url = 'https://www.douban.com/group/{0}/discussion?start={1}'.format(group, start)
+                r = self.ss_.get(url, headers = self.headers_)
+                now_time = int(time.time())
+                if r.status_code == 200:
+                    soup = BeautifulSoup(r.text, 'lxml')
+                    trs = soup.find_all('tr')
+                    for item in trs:
+                        if (len(item) < 4):
+                            continue
+                        tds = item.find_all('td')
+                        if len(tds) != 4:
+                            continue
+                        if not tds[0].find('a'):
+                            continue
+                        topic_url   = tds[0].a['href']
+                        title       = tds[0].a['title']
+                        reply_time  = tds[3].contents[0]   # 03-08 18:05
+                        reply_time  = '2020-{0}'.format(reply_time)
+
+                        timeArray = time.strptime(reply_time, "%Y-%m-%d %H:%M")
+                        timestamp = int(time.mktime(timeArray))
+
+                        if (now_time - timestamp) > 7 * 24 * 60 * 60: # 7 days
+                            break
+                        if start > 10000:
+                            break
+
+                        topic = {
+                                'url': topic_url,
+                                'title': title,
+                                'time': reply_time
+                                }
+                        topic_list.append(topic)
+                if not topic_list:
+                    print("found topic error for url:{0}".format(url))
+                    time_step += 0.2
+                else:
+                    print("found {0} topics for url:{1}".format(len(topic_list), url))
+                    time_step = 0.5
+
+                for topic_item in topic_list:
+                    if not self.spider_topic(topic_item):
                         continue
-                    tds = item.find_all('td')
-                    if len(tds) != 4:
-                        continue
-                    if not tds[0].find('a'):
-                        continue
-                    topic_url   = tds[0].a['href']
-                    title       = tds[0].a['title']
-                    reply_time  = tds[3].contents[0]   # 03-08 18:05
-                    reply_time  = '2020-{0}'.format(reply_time)
+                    self.add_satisfied_topic(topic_item)
+                    time.sleep(0.1)
 
-                    timeArray = time.strptime(reply_time, "%Y-%m-%d %H:%M")
-                    timestamp = int(time.mktime(timeArray))
+                time.sleep(time_step)
+                start += 25
+            except Exception as e:
+                print('catch exception in spider_group:{0}'.format(e))
 
-                    if (now_time - timestamp) > 7 * 24 * 60 * 60: # 7 days
-                        break
-                    topic = {
-                            'url': topic_url,
-                            'title': title,
-                            'time': reply_time
-                            }
-                    topic_list.append(topic)
-            if not topic_list:
-                print("found topic error for url:{0}".format(url))
-                time_step += 0.2
-            else:
-                print("found {0} topics for url:{1}".format(len(topic_list), url))
-                time_step = 0.5
+        return
 
-            for topic_item in topic_list:
-                if not self.spider_topic(topic_item):
-                    continue
-                results.append(topic_item)
+    def run(self):
+        group_size = len(self.groups_)
+        print('found {0} groups, will start to spider...'.format(group_size))
+        if not self.inited_:
+            self.init()
 
-            time.sleep(time_step)
-            if start > 10000:
-                break
-            start += 25
-            
-            if len(results) > 50:
-                break
+        thread_list = []
 
-        return results
+        for group in self.groups_:
+            sp_th = threading.Thread(target = self.spider_group, args = (group, ))
+            sp_th.start()
+            print('start thread:{0} for group:{1}'.format(sp_th, group))
+            thread_list.append(sp_th)
+
+
+        dump_th = threading.Thread(target = self.dump)
+        dump_th.start()
+        print('start thread:{0} for dump'.format(dump_th))
+        thread_list.append(dump_th)
+
+        while True:
+            time.sleep(1)
 
 
 
 
 
-def run():
-    #def __init__(self, cookies, groups, locations, house, date = 7,  filters = []):
+
+
+def main():
     cookies     = sconfig.cookies
     groups      = sconfig.groups 
     locations   = sconfig.locations
     house       = sconfig.house 
 
     douban = DouBan(cookies, groups, locations, house)
-    results = douban.spider_group(145219)
-    print(json.dumps(results, indent = 4))
+    douban.run()
+
 
 
 if __name__ == '__main__':
-    run()
+    main()
