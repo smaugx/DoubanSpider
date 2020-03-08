@@ -79,8 +79,9 @@ class DouBan(object):
                     print('dump topics_excluded to file, size is {0}'.format(len(self.topics_excluded_)))
                     fout.close()
             item = self.topics_satisfied_queue_.get(block = True)
-            with open(self.topics_satisfied_file_, 'a') as fout:
-                fout.write(json.dumps(item))
+            with open(self.topics_satisfied_file_, 'a', encoding='utf8') as fout:
+                fout.write(json.dumps(item, ensure_ascii=False))
+                fout.write('\n')
                 print('dump topics_satisfied to file, topic: {0}'.format(item.get('url')))
                 fout.close()
             time.sleep(10)
@@ -164,7 +165,7 @@ class DouBan(object):
             print("group(empty) invalid")
             return
         start = 0
-        time_step = 0.5
+        time_step = 3
         while True:
             try:
                 topic_list = []
@@ -212,7 +213,7 @@ class DouBan(object):
                     if not self.spider_topic(topic_item):
                         continue
                     self.add_satisfied_topic(topic_item)
-                    time.sleep(0.1)
+                    time.sleep(0.5)
 
                 time.sleep(time_step)
                 start += 25
