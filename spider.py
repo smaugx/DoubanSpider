@@ -10,6 +10,7 @@ import sconfig
 import json
 import threading
 import queue
+import random
 
 import pdb
 
@@ -78,13 +79,14 @@ class DouBan(object):
                     fout.write(json.dumps(self.topics_excluded_))
                     print('dump topics_excluded to file, size is {0}'.format(len(self.topics_excluded_)))
                     fout.close()
-            item = self.topics_satisfied_queue_.get(block = True)
             with open(self.topics_satisfied_file_, 'a', encoding='utf8') as fout:
-                fout.write(json.dumps(item, ensure_ascii=False))
-                fout.write('\n')
-                print('dump topics_satisfied to file, topic: {0}'.format(item.get('url')))
+                while self.topics_satisfied_queue_.qsize() > 0:
+                    item = self.topics_satisfied_queue_.get(block = False)
+                    fout.write(json.dumps(item, ensure_ascii=False))
+                    fout.write('\n')
+                    print('dump topics_satisfied to file, topic: {0}'.format(item.get('url')))
                 fout.close()
-            time.sleep(10)
+            time.sleep(random.randint(5, 10))
 
 
 
@@ -165,11 +167,14 @@ class DouBan(object):
             print("group(empty) invalid")
             return
         start = 0
-        time_step = 3
+        time_step = 30
         while True:
+            time_step = random.randint(20, 50)
+            time.sleep(time_step)
             try:
                 topic_list = []
                 url = 'https://www.douban.com/group/{0}/discussion?start={1}'.format(group, start)
+                self.headers_['Referer'] = url
                 r = self.ss_.get(url, headers = self.headers_)
                 now_time = int(time.time())
                 if r.status_code == 200:
@@ -213,9 +218,8 @@ class DouBan(object):
                     if not self.spider_topic(topic_item):
                         continue
                     self.add_satisfied_topic(topic_item)
-                    time.sleep(0.5)
+                    time.sleep(random.randint(8, 15))
 
-                time.sleep(time_step)
                 start += 25
             except Exception as e:
                 print('catch exception in spider_group:{0}'.format(e))
