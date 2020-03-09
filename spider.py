@@ -11,9 +11,14 @@ import json
 import threading
 import queue
 import random
+import difflib
 
 import pdb
 
+
+def string_similar(s1,s2):
+    # exclude ' '
+    return difflib.SequenceMatcher(lambda x:x==' ', s1, s2).quick_ratio()
 
 
 class DouBan(object):
@@ -54,6 +59,11 @@ class DouBan(object):
         # store topic_item what I want
         self.topics_satisfied_queue_ = queue.Queue(1000)
         self.topics_satisfied_file_ = '/tmp/doubanzufang.spider.topics.satisfied'
+
+        # filter same person ,similar(same) title
+        self.topics_similar_filter_lock_ = threading.Lock()
+        # key is user, value is list of title
+        self.topics_similar_filter_ = {}
 
         self.inited_ = False
 
@@ -103,7 +113,29 @@ class DouBan(object):
                 return False
         return False
 
+    def check_similar_topic(self, topic_item):
+        with self.topics_similar_filter_lock_:
+            user  = topic_item.get('user')
+            title = topic_item.get('title')
+            if user not in self.topics_similar_filter_:
+                self.topics_similar_filter_[user] = [title]
+                return False
+            else:
+                old_titles = self.topics_similar_filter_.get(user)
+                for ot in old_titles:
+                    ratio = string_similar(title, ot)
+                    if float(ratio) >= 0.8:
+                        # maybe the same
+                        print('found similar user:{0} title:{1} old:{2}'.format(user, title, ot))
+                        return True
+                self.topics_similar_filter_[user].append(title)
+                return False
+        return True
+
+
     def add_satisfied_topic(self, topic_item):
+        if self.check_similar_topic(topic_item):
+            return
         self.topics_satisfied_queue_.put(topic_item, block = False, timeout = 1)
         return
 
@@ -169,7 +201,7 @@ class DouBan(object):
         start = 0
         time_step = 30
         while True:
-            time_step = random.randint(20, 50)
+            time_step = random.randint(30, 60)
             time.sleep(time_step)
             try:
                 topic_list = []
@@ -190,35 +222,41 @@ class DouBan(object):
                             continue
                         topic_url   = tds[0].a['href']
                         title       = tds[0].a['title']
+                        user        = tds[1].a['href']
                         reply_time  = tds[3].contents[0]   # 03-08 18:05
                         reply_time  = '2020-{0}'.format(reply_time)
 
                         timeArray = time.strptime(reply_time, "%Y-%m-%d %H:%M")
                         timestamp = int(time.mktime(timeArray))
 
+                        '''
                         if (now_time - timestamp) > 7 * 24 * 60 * 60: # 7 days
                             break
                         if start > 10000:
                             break
+                        '''
+
+                        if (now_time - timestamp) > 7 * 24 * 60 * 60 or start > 10000:
+                            print('from beginning for group:{0}'.format(url))
+                            start = 0
 
                         topic = {
                                 'url': topic_url,
+                                'user': user,
                                 'title': title,
                                 'time': reply_time
                                 }
                         topic_list.append(topic)
                 if not topic_list:
                     print("found topic error for url:{0}".format(url))
-                    time_step += 0.2
                 else:
                     print("found {0} topics for url:{1}".format(len(topic_list), url))
-                    time_step = 0.5
 
                 for topic_item in topic_list:
                     if not self.spider_topic(topic_item):
                         continue
                     self.add_satisfied_topic(topic_item)
-                    time.sleep(random.randint(8, 15))
+                    time.sleep(random.randint(30, 50))
 
                 start += 25
             except Exception as e:
