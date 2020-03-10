@@ -199,9 +199,9 @@ class DouBan(object):
             print("group(empty) invalid")
             return
         start = 0
-        time_step = 30
+        time_step = 50
         while True:
-            time_step = random.randint(30, 60)
+            time_step = random.randint(50, 80)
             time.sleep(time_step)
             try:
                 topic_list = []
@@ -256,7 +256,7 @@ class DouBan(object):
                     if not self.spider_topic(topic_item):
                         continue
                     self.add_satisfied_topic(topic_item)
-                    time.sleep(random.randint(30, 50))
+                    time.sleep(random.randint(60, 90))
 
                 start += 25
             except Exception as e:
