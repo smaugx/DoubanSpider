@@ -153,6 +153,7 @@ class DouBan(object):
             return False 
 
         r = self.ss_.get(topic_url, headers = self.headers_)
+        print("#######################http get for url:{0}".format(topic_url))
         title, content = '', ''
         if r.status_code == 200:
             soup = BeautifulSoup(r.text, 'lxml')
@@ -208,6 +209,7 @@ class DouBan(object):
                 url = 'https://www.douban.com/group/{0}/discussion?start={1}'.format(group, start)
                 self.headers_['Referer'] = url
                 r = self.ss_.get(url, headers = self.headers_)
+                print("#######################http get for url:{0}".format(url))
                 now_time = int(time.time())
                 if r.status_code == 200:
                     soup = BeautifulSoup(r.text, 'lxml')
