@@ -250,7 +250,7 @@ class DouBan(object):
                                 }
                         topic_list.append(topic)
                 if not topic_list:
-                    print("found topic error for url:{0}".format(url))
+                    print("\033[1;31;40m found topic error for url:{0}".format(url))
                 else:
                     print("found {0} topics for url:{1}".format(len(topic_list), url))
 
@@ -262,7 +262,7 @@ class DouBan(object):
 
                 start += 25
             except Exception as e:
-                print('catch exception in spider_group:{0}'.format(e))
+                print('\033[1;31;40m catch exception in spider_group:{0}'.format(e))
 
         return
 
