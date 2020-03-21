@@ -32,7 +32,7 @@ house = ['一室']
 ```
 
 # Something Else
-if you want to using markdown file, you can use command:
+if you want to use markdown file, you can use command:
 
 ```
 python convert_to_markdown.py
