@@ -1,7 +1,8 @@
-# doubanzufang
-a spider for douban zufang groups.
+# DoubanSpider
+a spider for douban groups of renting a house.
+豆瓣租房小组爬虫。
 
-# how to use?
+# How to use?
 config file is sconfig.py, put your own needs in this file.
 
 ## cookies
@@ -29,3 +30,12 @@ change this value to some house type.
 ```
 house = ['一室']
 ```
+
+# Something Else
+if you want to using markdown file, you can use command:
+
+```
+python convert_to_markdown.py
+```
+
+but first, make sure **doubanzufang.spider.topics.satisfied** in current dir.
