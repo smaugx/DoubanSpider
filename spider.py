@@ -50,6 +50,10 @@ class DouBan(object):
         self.ss_ = requests.Session()
         self.ss_.mount('http://', HTTPAdapter(max_retries=3))
         self.ss_.mount('https://', HTTPAdapter(max_retries=3))
+        self.proxies_ = {
+                'http': '47.99.91.112:3128',
+                'https':'47.99.91.112:3128' 
+                }
 
         self.topics_excluded_lock_ = threading.Lock()
         # filter topic_url visited
@@ -152,7 +156,7 @@ class DouBan(object):
             print("topic_url(empty) invalid")
             return False 
 
-        r = self.ss_.get(topic_url, headers = self.headers_)
+        r = self.ss_.get(topic_url, headers = self.headers_, proxies = self.proxies_)
         print("#######################http get for url:{0}".format(topic_url))
         title, content = '', ''
         if r.status_code == 200:
@@ -200,15 +204,15 @@ class DouBan(object):
             print("group(empty) invalid")
             return
         start = 0
-        time_step = 50
+        time_step = 3
         while True:
-            time_step = random.randint(50, 80)
+            time_step = random.randint(5, 10)
             time.sleep(time_step)
             try:
                 topic_list = []
                 url = 'https://www.douban.com/group/{0}/discussion?start={1}'.format(group, start)
                 self.headers_['Referer'] = url
-                r = self.ss_.get(url, headers = self.headers_)
+                r = self.ss_.get(url, headers = self.headers_, proxies = self.proxies_)
                 print("#######################http get for url:{0}".format(url))
                 now_time = int(time.time())
                 if r.status_code == 200:
@@ -258,9 +262,9 @@ class DouBan(object):
                     if not self.spider_topic(topic_item):
                         continue
                     self.add_satisfied_topic(topic_item)
-                    time.sleep(random.randint(60, 90))
+                    time.sleep(random.randint(5, 10))
 
-                start += 25
+                start += 5
             except Exception as e:
                 print('\033[1;31;40m catch exception in spider_group:{0}'.format(e))
 
