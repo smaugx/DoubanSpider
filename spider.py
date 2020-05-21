@@ -51,8 +51,8 @@ class DouBan(object):
         self.ss_.mount('http://', HTTPAdapter(max_retries=3))
         self.ss_.mount('https://', HTTPAdapter(max_retries=3))
         self.proxies_ = {
-                'http': '47.99.91.112:3128',
-                'https':'47.99.91.112:3128' 
+                'http': None,
+                'https':None 
                 }
 
         self.topics_excluded_lock_ = threading.Lock()

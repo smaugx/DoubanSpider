@@ -1,11088 +1,2713 @@
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
+[庆隆苑 大悦城 天堂软件园 精装一室独立厨卫 燃气厨房 特惠只要2180！ 错过再没有！](https://www.douban.com/group/topic/175862643/)
 
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175818132/)
 
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[黄龙起步价大悦城庆隆苑一室一厅带燃气价格美丽只要2000出头](https://www.douban.com/group/topic/168238380/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242300/)
-
-[五号线和睦地铁口 大悦城附近 蓝钻天成网红公寓楼一室45平 2650包物业费随时看房15949233335](https://www.douban.com/group/topic/168242400/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168152736/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163939/)
-
-[黄龙隔壁中融城市花园，汇丰公寓一室一厅出租，独立厨卫，价格实惠，生活方便](https://www.douban.com/group/topic/168234555/)
-
-[【黄龙】 无中介费 世贸丽晶城 百脑汇 支付宝 德力西大厦 整租一室精装单身公寓有飘窗 可月付 照片实拍](https://www.douban.com/group/topic/163148572/)
-
-[和睦地铁口，蓝钻天城，精装一室民用电，包物业2650，大悦城，七乐汇生活广场，家电齐全，实图实价，看房13336163958微同号](https://www.douban.com/group/topic/168232926/)
-
-[浙商财富中心蚂蚁金服附近有一室一厅精装修拎包入住](https://www.douban.com/group/topic/168239834/)
-
-[湘湖 地铁一号线 湖头陈花苑](https://www.douban.com/group/topic/168088436/)
-
-[萧山2号线地铁口杭发厂单身公寓无中介银隆百货万象汇](https://www.douban.com/group/topic/168240631/)
-
-[古墩路浙商财富中心蘑菇街对面一室一厅精装拎包入住](https://www.douban.com/group/topic/168238967/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168090945/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166444879/)
-
-[大悦城三宝郡庭朝南一室一厅带管道煤气，精装修，天堂软件园 黄龙 远洋首选](https://www.douban.com/group/topic/168180172/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168233498/)
-
-[金地广场 浙江交通职业技术学院整租一室 最低1000包物业 看房联系18685076441微信同号](https://www.douban.com/group/topic/168163603/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166934/)
-
-[大悦城附近（三宝郡庭），一室一厅，3300无中介费，随时看房，拎吧入住看房电话18158105920](https://www.douban.com/group/topic/168238229/)
-
-[三宝郡庭精装一室出租 近大悦城城西银泰](https://www.douban.com/group/topic/167955930/)
-
-[丰潭路地铁口   沁雅花园，朝南一室一厅，带阳台，独卫公厨    房东直租   19951787075](https://www.douban.com/group/topic/168089169/)
-
-[【出租】【蓝钻天城】 精装一室朝南民用电 和睦地铁口 大悦城 城西银泰](https://www.douban.com/group/topic/168158226/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168203620/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168198907/)
-
-[房东出租紫荆花路88号嘉禾花苑一室一厅精装修拎包入住](https://www.douban.com/group/topic/168237778/)
-
-[中粮大悦城对面，三宝郡庭一室独立厨卫，燃气厨房带个餐厅，租金2800一个月，可短租](https://www.douban.com/group/topic/167930498/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438257/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168205467/)
-
-[2020太“南”了  想找一人合租彭埠地铁附近的两居房](https://www.douban.com/group/topic/168192540/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/168215958/)
-
-[浙商财富中心，蚂蚁金服联合大厦附近 房东出租 精装全配一室一厨一卫套房1800元](https://www.douban.com/group/topic/168125205/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166711/)
-
-[西湖区学院路地铁口支付宝大楼黄龙万科附近精装修一室一厅带大露台整租](https://www.douban.com/group/topic/168110901/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163778/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168225676/)
-
-[房东有独立一室一厅翠苑三区，方方正正](https://www.douban.com/group/topic/167944635/)
-
-[大悦城，乐堤港附近，一室一厅一卫，大露台](https://www.douban.com/group/topic/168153597/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167923023/)
-
-[大悦城两房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168002801/)
-
-[独门独户一室带阳台 只要2300](https://www.douban.com/group/topic/168176487/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅朝南带阳台](https://www.douban.com/group/topic/168005886/)
-
-[西湖区，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁附近](https://www.douban.com/group/topic/168232204/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 东方福邸 一室一厅朝南落地窗 采光充裕 超便宜 可押一付一](https://www.douban.com/group/topic/168220661/)
-
-[大悦城商场，庆隆苑二期小区，朝南带阳台一室一厨一卫，独立冰箱洗衣机，视野开阔，楼前无遮挡物，特价2550，18391585606](https://www.douban.com/group/topic/168040849/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅带管道煤气](https://www.douban.com/group/topic/168109832/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 保利香槟国际 一室一厅 特价2千出头 可押一付一](https://www.douban.com/group/topic/168220373/)
-
-[黄龙万科中心对面  文三路超大整租一室一卫    单身公寓 密码锁 直接拎包入住](https://www.douban.com/group/topic/168156507/)
-
-[【房东出租】滨江长河 白马湖小区 孔雀苑 2室1厅1厨1卫 整租 4100](https://www.douban.com/group/topic/168086113/)
-
-[【整套出租】【房东直租】文一路翠苑，一室一厅，精装修](https://www.douban.com/group/topic/168024933/)
-
-[七堡杨柳郡小卧室找室友-非中介](https://www.douban.com/group/topic/146222033/)
-
-[拱墅区，大悦城附近三宝郡庭，朝南一室一厅独立厨卫，管道煤气，带阳台，价格优惠需要滴滴
-
-](https://www.douban.com/group/topic/168153485/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168006606/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167935463/)
-
-[三宝郡庭一室一厨一卫，大悦城附近，随时看房 ，年付2100包物业费没有中介费](https://www.douban.com/group/topic/168229121/)
-
-[拱墅区，大悦城旁边 庆隆苑一室独立厨卫带阳台](https://www.douban.com/group/topic/168002055/)
-
-[房东出租文三西路古墩路口小区房](https://www.douban.com/group/topic/167995236/)
-
-[No中介【个人出租】闸弄口地铁站附近，无中介费，朝南阳光房，情侣，姐妹，兄弟都可以。](https://www.douban.com/group/topic/168063949/)
-
-[二号线学院路、枫华府第，精装一室一厅独立厨卫。只要2000多、](https://www.douban.com/group/topic/167903897/)
-
-[房东直租，避免中介，避免二房东。价格美丽，押一付一，一室一厨一卫只要1300每月](https://www.douban.com/group/topic/167927514/)
-
-[ 庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看](https://www.douban.com/group/topic/168112996/)
-
-[ 城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948391/)
-
-[【西湖区】九玺天成西区  金地自在城栖霞居  一居室](https://www.douban.com/group/topic/168170964/)
-
-[出租文三西路浙商财富中心、联合大厦附近一室一卫](https://www.douban.com/group/topic/168155105/)
-
-[朝南独立厨卫一室 只要2000 ](https://www.douban.com/group/topic/168165689/)
-
-[古翠路地铁口，和悦公寓，一室一卫一阳台，价格3000微信s488805276](https://www.douban.com/group/topic/167903586/)
-
-[黄龙万科华星时代广场旁、精装一室独立厨卫，单身公寓。可拎包入住！](https://www.douban.com/group/topic/167902946/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[黄龙起步价大悦城庆隆苑一室一厅带燃气价格美丽只要2000出头](https://www.douban.com/group/topic/168238380/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242300/)
-
-[五号线和睦地铁口 大悦城附近 蓝钻天成网红公寓楼一室45平 2650包物业费随时看房15949233335](https://www.douban.com/group/topic/168242400/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168152736/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163939/)
-
-[黄龙隔壁中融城市花园，汇丰公寓一室一厅出租，独立厨卫，价格实惠，生活方便](https://www.douban.com/group/topic/168234555/)
-
-[【黄龙】 无中介费 世贸丽晶城 百脑汇 支付宝 德力西大厦 整租一室精装单身公寓有飘窗 可月付 照片实拍](https://www.douban.com/group/topic/163148572/)
-
-[和睦地铁口，蓝钻天城，精装一室民用电，包物业2650，大悦城，七乐汇生活广场，家电齐全，实图实价，看房13336163958微同号](https://www.douban.com/group/topic/168232926/)
-
-[浙商财富中心蚂蚁金服附近有一室一厅精装修拎包入住](https://www.douban.com/group/topic/168239834/)
-
-[湘湖 地铁一号线 湖头陈花苑](https://www.douban.com/group/topic/168088436/)
-
-[萧山2号线地铁口杭发厂单身公寓无中介银隆百货万象汇](https://www.douban.com/group/topic/168240631/)
-
-[古墩路浙商财富中心蘑菇街对面一室一厅精装拎包入住](https://www.douban.com/group/topic/168238967/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168090945/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166444879/)
-
-[大悦城三宝郡庭朝南一室一厅带管道煤气，精装修，天堂软件园 黄龙 远洋首选](https://www.douban.com/group/topic/168180172/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168233498/)
-
-[金地广场 浙江交通职业技术学院整租一室 最低1000包物业 看房联系18685076441微信同号](https://www.douban.com/group/topic/168163603/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166934/)
-
-[大悦城附近（三宝郡庭），一室一厅，3300无中介费，随时看房，拎吧入住看房电话18158105920](https://www.douban.com/group/topic/168238229/)
-
-[三宝郡庭精装一室出租 近大悦城城西银泰](https://www.douban.com/group/topic/167955930/)
-
-[丰潭路地铁口   沁雅花园，朝南一室一厅，带阳台，独卫公厨    房东直租   19951787075](https://www.douban.com/group/topic/168089169/)
-
-[【出租】【蓝钻天城】 精装一室朝南民用电 和睦地铁口 大悦城 城西银泰](https://www.douban.com/group/topic/168158226/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168203620/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168198907/)
-
-[房东出租紫荆花路88号嘉禾花苑一室一厅精装修拎包入住](https://www.douban.com/group/topic/168237778/)
-
-[中粮大悦城对面，三宝郡庭一室独立厨卫，燃气厨房带个餐厅，租金2800一个月，可短租](https://www.douban.com/group/topic/167930498/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438257/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168205467/)
-
-[2020太“南”了  想找一人合租彭埠地铁附近的两居房](https://www.douban.com/group/topic/168192540/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/168215958/)
-
-[浙商财富中心，蚂蚁金服联合大厦附近 房东出租 精装全配一室一厨一卫套房1800元](https://www.douban.com/group/topic/168125205/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166711/)
-
-[西湖区学院路地铁口支付宝大楼黄龙万科附近精装修一室一厅带大露台整租](https://www.douban.com/group/topic/168110901/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163778/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168225676/)
-
-[房东有独立一室一厅翠苑三区，方方正正](https://www.douban.com/group/topic/167944635/)
-
-[大悦城，乐堤港附近，一室一厅一卫，大露台](https://www.douban.com/group/topic/168153597/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167923023/)
-
-[大悦城两房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168002801/)
-
-[独门独户一室带阳台 只要2300](https://www.douban.com/group/topic/168176487/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅朝南带阳台](https://www.douban.com/group/topic/168005886/)
-
-[西湖区，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁附近](https://www.douban.com/group/topic/168232204/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 东方福邸 一室一厅朝南落地窗 采光充裕 超便宜 可押一付一](https://www.douban.com/group/topic/168220661/)
-
-[大悦城商场，庆隆苑二期小区，朝南带阳台一室一厨一卫，独立冰箱洗衣机，视野开阔，楼前无遮挡物，特价2550，18391585606](https://www.douban.com/group/topic/168040849/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅带管道煤气](https://www.douban.com/group/topic/168109832/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 保利香槟国际 一室一厅 特价2千出头 可押一付一](https://www.douban.com/group/topic/168220373/)
-
-[黄龙万科中心对面  文三路超大整租一室一卫    单身公寓 密码锁 直接拎包入住](https://www.douban.com/group/topic/168156507/)
-
-[【房东出租】滨江长河 白马湖小区 孔雀苑 2室1厅1厨1卫 整租 4100](https://www.douban.com/group/topic/168086113/)
-
-[【整套出租】【房东直租】文一路翠苑，一室一厅，精装修](https://www.douban.com/group/topic/168024933/)
-
-[七堡杨柳郡小卧室找室友-非中介](https://www.douban.com/group/topic/146222033/)
-
-[拱墅区，大悦城附近三宝郡庭，朝南一室一厅独立厨卫，管道煤气，带阳台，价格优惠需要滴滴
-
-](https://www.douban.com/group/topic/168153485/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168006606/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167935463/)
-
-[三宝郡庭一室一厨一卫，大悦城附近，随时看房 ，年付2100包物业费没有中介费](https://www.douban.com/group/topic/168229121/)
-
-[拱墅区，大悦城旁边 庆隆苑一室独立厨卫带阳台](https://www.douban.com/group/topic/168002055/)
-
-[房东出租文三西路古墩路口小区房](https://www.douban.com/group/topic/167995236/)
-
-[No中介【个人出租】闸弄口地铁站附近，无中介费，朝南阳光房，情侣，姐妹，兄弟都可以。](https://www.douban.com/group/topic/168063949/)
-
-[二号线学院路、枫华府第，精装一室一厅独立厨卫。只要2000多、](https://www.douban.com/group/topic/167903897/)
-
-[房东直租，避免中介，避免二房东。价格美丽，押一付一，一室一厨一卫只要1300每月](https://www.douban.com/group/topic/167927514/)
-
-[ 庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看](https://www.douban.com/group/topic/168112996/)
-
-[ 城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948391/)
-
-[【西湖区】九玺天成西区  金地自在城栖霞居  一居室](https://www.douban.com/group/topic/168170964/)
-
-[出租文三西路浙商财富中心、联合大厦附近一室一卫](https://www.douban.com/group/topic/168155105/)
-
-[朝南独立厨卫一室 只要2000 ](https://www.douban.com/group/topic/168165689/)
-
-[古翠路地铁口，和悦公寓，一室一卫一阳台，价格3000微信s488805276](https://www.douban.com/group/topic/167903586/)
-
-[黄龙万科华星时代广场旁、精装一室独立厨卫，单身公寓。可拎包入住！](https://www.douban.com/group/topic/167902946/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466471/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490284/)
-
-[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
-
-[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
-
-[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
-
-[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
-
-[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/168285890/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 客厅有电视 中间楼层](https://www.douban.com/group/topic/168286291/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168340334/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468135/)
-
-[房东出租文三西路古墩路紫荆花路小区房](https://www.douban.com/group/topic/168470320/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[黄龙起步价大悦城庆隆苑一室一厅带燃气价格美丽只要2000出头](https://www.douban.com/group/topic/168238380/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242300/)
-
-[五号线和睦地铁口 大悦城附近 蓝钻天成网红公寓楼一室45平 2650包物业费随时看房15949233335](https://www.douban.com/group/topic/168242400/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168152736/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163939/)
-
-[黄龙隔壁中融城市花园，汇丰公寓一室一厅出租，独立厨卫，价格实惠，生活方便](https://www.douban.com/group/topic/168234555/)
-
-[【黄龙】 无中介费 世贸丽晶城 百脑汇 支付宝 德力西大厦 整租一室精装单身公寓有飘窗 可月付 照片实拍](https://www.douban.com/group/topic/163148572/)
-
-[和睦地铁口，蓝钻天城，精装一室民用电，包物业2650，大悦城，七乐汇生活广场，家电齐全，实图实价，看房13336163958微同号](https://www.douban.com/group/topic/168232926/)
-
-[浙商财富中心蚂蚁金服附近有一室一厅精装修拎包入住](https://www.douban.com/group/topic/168239834/)
-
-[湘湖 地铁一号线 湖头陈花苑](https://www.douban.com/group/topic/168088436/)
-
-[萧山2号线地铁口杭发厂单身公寓无中介银隆百货万象汇](https://www.douban.com/group/topic/168240631/)
-
-[古墩路浙商财富中心蘑菇街对面一室一厅精装拎包入住](https://www.douban.com/group/topic/168238967/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168090945/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166444879/)
-
-[大悦城三宝郡庭朝南一室一厅带管道煤气，精装修，天堂软件园 黄龙 远洋首选](https://www.douban.com/group/topic/168180172/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168233498/)
-
-[金地广场 浙江交通职业技术学院整租一室 最低1000包物业 看房联系18685076441微信同号](https://www.douban.com/group/topic/168163603/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166934/)
-
-[大悦城附近（三宝郡庭），一室一厅，3300无中介费，随时看房，拎吧入住看房电话18158105920](https://www.douban.com/group/topic/168238229/)
-
-[三宝郡庭精装一室出租 近大悦城城西银泰](https://www.douban.com/group/topic/167955930/)
-
-[丰潭路地铁口   沁雅花园，朝南一室一厅，带阳台，独卫公厨    房东直租   19951787075](https://www.douban.com/group/topic/168089169/)
-
-[【出租】【蓝钻天城】 精装一室朝南民用电 和睦地铁口 大悦城 城西银泰](https://www.douban.com/group/topic/168158226/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168203620/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168198907/)
-
-[房东出租紫荆花路88号嘉禾花苑一室一厅精装修拎包入住](https://www.douban.com/group/topic/168237778/)
-
-[中粮大悦城对面，三宝郡庭一室独立厨卫，燃气厨房带个餐厅，租金2800一个月，可短租](https://www.douban.com/group/topic/167930498/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438257/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168205467/)
-
-[2020太“南”了  想找一人合租彭埠地铁附近的两居房](https://www.douban.com/group/topic/168192540/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/168215958/)
-
-[浙商财富中心，蚂蚁金服联合大厦附近 房东出租 精装全配一室一厨一卫套房1800元](https://www.douban.com/group/topic/168125205/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166711/)
-
-[西湖区学院路地铁口支付宝大楼黄龙万科附近精装修一室一厅带大露台整租](https://www.douban.com/group/topic/168110901/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163778/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168225676/)
-
-[房东有独立一室一厅翠苑三区，方方正正](https://www.douban.com/group/topic/167944635/)
-
-[大悦城，乐堤港附近，一室一厅一卫，大露台](https://www.douban.com/group/topic/168153597/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167923023/)
-
-[大悦城两房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168002801/)
-
-[独门独户一室带阳台 只要2300](https://www.douban.com/group/topic/168176487/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅朝南带阳台](https://www.douban.com/group/topic/168005886/)
-
-[西湖区，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁附近](https://www.douban.com/group/topic/168232204/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 东方福邸 一室一厅朝南落地窗 采光充裕 超便宜 可押一付一](https://www.douban.com/group/topic/168220661/)
-
-[大悦城商场，庆隆苑二期小区，朝南带阳台一室一厨一卫，独立冰箱洗衣机，视野开阔，楼前无遮挡物，特价2550，18391585606](https://www.douban.com/group/topic/168040849/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅带管道煤气](https://www.douban.com/group/topic/168109832/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 保利香槟国际 一室一厅 特价2千出头 可押一付一](https://www.douban.com/group/topic/168220373/)
-
-[黄龙万科中心对面  文三路超大整租一室一卫    单身公寓 密码锁 直接拎包入住](https://www.douban.com/group/topic/168156507/)
-
-[【房东出租】滨江长河 白马湖小区 孔雀苑 2室1厅1厨1卫 整租 4100](https://www.douban.com/group/topic/168086113/)
-
-[【整套出租】【房东直租】文一路翠苑，一室一厅，精装修](https://www.douban.com/group/topic/168024933/)
-
-[七堡杨柳郡小卧室找室友-非中介](https://www.douban.com/group/topic/146222033/)
-
-[拱墅区，大悦城附近三宝郡庭，朝南一室一厅独立厨卫，管道煤气，带阳台，价格优惠需要滴滴
-
-](https://www.douban.com/group/topic/168153485/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168006606/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167935463/)
-
-[三宝郡庭一室一厨一卫，大悦城附近，随时看房 ，年付2100包物业费没有中介费](https://www.douban.com/group/topic/168229121/)
-
-[拱墅区，大悦城旁边 庆隆苑一室独立厨卫带阳台](https://www.douban.com/group/topic/168002055/)
-
-[房东出租文三西路古墩路口小区房](https://www.douban.com/group/topic/167995236/)
-
-[No中介【个人出租】闸弄口地铁站附近，无中介费，朝南阳光房，情侣，姐妹，兄弟都可以。](https://www.douban.com/group/topic/168063949/)
-
-[二号线学院路、枫华府第，精装一室一厅独立厨卫。只要2000多、](https://www.douban.com/group/topic/167903897/)
-
-[房东直租，避免中介，避免二房东。价格美丽，押一付一，一室一厨一卫只要1300每月](https://www.douban.com/group/topic/167927514/)
-
-[ 庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看](https://www.douban.com/group/topic/168112996/)
-
-[ 城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948391/)
-
-[【西湖区】九玺天成西区  金地自在城栖霞居  一居室](https://www.douban.com/group/topic/168170964/)
-
-[出租文三西路浙商财富中心、联合大厦附近一室一卫](https://www.douban.com/group/topic/168155105/)
-
-[朝南独立厨卫一室 只要2000 ](https://www.douban.com/group/topic/168165689/)
-
-[古翠路地铁口，和悦公寓，一室一卫一阳台，价格3000微信s488805276](https://www.douban.com/group/topic/167903586/)
-
-[黄龙万科华星时代广场旁、精装一室独立厨卫，单身公寓。可拎包入住！](https://www.douban.com/group/topic/167902946/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466471/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490284/)
-
-[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
-
-[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
-
-[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
-
-[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
-
-[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/168285890/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 客厅有电视 中间楼层](https://www.douban.com/group/topic/168286291/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168340334/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468135/)
-
-[房东出租文三西路古墩路紫荆花路小区房](https://www.douban.com/group/topic/168470320/)
-
-[和睦地铁站5号线，蓝砖天成一室一厅，只要2600
-大悦城  银泰百货铂澜，，联系电话:17607949368（微信同号）](https://www.douban.com/group/topic/168449092/)
-
-[翠苑一区精装一室一厅一厨出租拎包入住，近地铁，物美，联系电话：13279203971 微信：18593040504](https://www.douban.com/group/topic/168529101/)
-
-[【阿里未来科技城】西溪永乐城 隔断两房两厅一卫 无中介 可月付 随时看房](https://www.douban.com/group/topic/168530794/)
-
-[城西银泰 大悦城 1900独立卫生间独立厨房](https://www.douban.com/group/topic/168518183/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168476944/)
-
-[嘉绿福苑，精装一室一厅，电梯房，古翠路地铁口附近，诚心出租，看房联系:13426524489](https://www.douban.com/group/topic/168490690/)
-
-[学院华庭一室一厅一厨出租，可短租可月租，装修清爽，拎包入住，联系电话：1327920397，微信：18593040504](https://www.douban.com/group/topic/168519010/)
-
-[西湖区|翠苑一区一室一厅  精致装修|房东直租 文青理想居所](https://www.douban.com/group/topic/168372010/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168362536/)
-
-[天堂软件园附近中天西城纪一室整租只要2950元需要的抓紧，手慢无，17605814007微信同号](https://www.douban.com/group/topic/168486040/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168390684/)
-
-[翠苑一区 学院路地铁口 精装一室小套，看房有钥匙15103801065微信同号](https://www.douban.com/group/topic/168272989/)
-
-[翠苑一区 学院路地铁口 文二路学院路口 整租精装一室 2楼 燃气管道 随时看房](https://www.douban.com/group/topic/168466498/)
-
-[华门世家 精装一室 独立厨卫  可押一付一  近德力西 支付宝 黄龙万科 颐高数码](https://www.douban.com/group/topic/168513619/)
-
-[乐堤港 大悦城旁 一室一厅 燃气厨房 精装修全新家具 拎包入住  便宜出租](https://www.douban.com/group/topic/168364831/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168247315/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466100/)
-
-[【钱江路地铁站】超大单价](https://www.douban.com/group/topic/166311935/)
-
-[拱墅区 城西银泰对面 三坝地铁口 60平一室一厅带阳台 家具齐全 拎包入住](https://www.douban.com/group/topic/168286539/)
-
-[大悦城三宝郡庭朝南阳台一室卫生间干湿分离价格2000多一点滴滴](https://www.douban.com/group/topic/168407943/)
-
-[近黄龙体育中心一室一厅 电梯房高档小区看房方便 看房联系18868448262](https://www.douban.com/group/topic/168512748/)
-
-[汽车北站对面 大悦城附近 五号线和睦地铁口附近 花园岗小区 一室一厨卫 朝南带阳台1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/168484563/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 黄金楼层 家具齐全](https://www.douban.com/group/topic/168289836/)
-
-[转租大悦城莫干山路大悦城旁 三宝郡庭一室整租 1000➕](https://www.douban.com/group/topic/168010240/)
-
-[天堂软件园中天mcc大悦城零距离，房东直租朝南精装一室一厅，燃气做饭，三宝郡庭特价3500，无中介费随时看房微信13067790717](https://www.douban.com/group/topic/168378260/)
-
-[学院北路（雍荣华庭）近地铁二号线三墩站，近龙湖天街，朝南主卧一室独立厨卫2200元！](https://www.douban.com/group/topic/168504078/)
-
-[沁雅花园，朝南独卫带阳台。黄龙，华星时代广场，丰潭路地铁附近](https://www.douban.com/group/topic/168526905/)
-
-[城西银泰附近 美都广场大悦城旁边精装一室 随时拎包入住。](https://www.douban.com/group/topic/168026666/)
-
-[出租西湖区房屋，耀江文萃苑朝南独卫。黄龙，枫华府第，学院路地铁附近](https://www.douban.com/group/topic/168525756/)
-
-[拱墅区大悦城旁边 三宝郡庭单身公寓整租一室](https://www.douban.com/group/topic/168041682/)
-
-[大悦城 莫干山路 都景公寓一室整租](https://www.douban.com/group/topic/168512285/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168466810/)
-
-[再次寻找合租女生室友，地点翠苑三区，四区](https://www.douban.com/group/topic/168487880/)
-
-[拱墅区 城西银泰对面 三坝地铁口『芳满庭』60平一室一厅带阳台 装修看图](https://www.douban.com/group/topic/168290529/)
-
-[黄龙万科中心对面  文三路254号
-超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，微信18867800479](https://www.douban.com/group/topic/168311140/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168300436/)
-
-[黄龙 精装漫果公寓出租 一室 首月特惠](https://www.douban.com/group/topic/168502563/)
-
-[天堂软件园中粮大悦城附近（三宝郡庭）一室一厅燃气厨房 拎包入住精装修](https://www.douban.com/group/topic/168498746/)
-
-[近黄龙商圈 支付宝大楼  黄龙万科中心对面  文三路254号
-超大整租一室一卫   45平方 单身公寓 ](https://www.douban.com/group/topic/168456105/)
-
-[二号线古翠路地铁口 嘉绿名苑朝南一室 拎包入住 绿码看房](https://www.douban.com/group/topic/166043154/)
-
-[拱墅区 大悦城对面 三宝郡庭 一室一厅独立厨卫管道煤气出租](https://www.douban.com/group/topic/168506181/)
-
-[【免1个月租金 西湖区近地铁2号线】【短租长租】](https://www.douban.com/group/topic/168434324/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468154/)
-
-[房东直租，无需中介费，城西益乐路地铁二号线嘉绿青苑](https://www.douban.com/group/topic/168517846/)
-
-[嘉绿福苑，近古翠路地铁口，近世纪联华超市，一室一厅一厨一卫，精装修，拎包入住，每月租金4500元。联系电话18668180878，微信同号。](https://www.douban.com/group/topic/168477680/)
-
-[西湖区 教工路小区 一室一厅 带天然气厨房 刚空出 近黄龙体育场 德力西大厦 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/168277911/)
-
-[[非中介]滨江宝龙华盛达旁！精装整租一室2700！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
-
-[房东出租精装小区房文三西路古墩路紫荆花路](https://www.douban.com/group/topic/168484775/)
-
-[西湖区，黄龙万科旁边，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁](https://www.douban.com/group/topic/168401936/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168125889/)
-
-[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168419949/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/168495190/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168464593/)
-
-[房东直租无中介费出租文一路益乐新村北区价1000元](https://www.douban.com/group/topic/168508082/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[黄龙起步价大悦城庆隆苑一室一厅带燃气价格美丽只要2000出头](https://www.douban.com/group/topic/168238380/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242300/)
-
-[五号线和睦地铁口 大悦城附近 蓝钻天成网红公寓楼一室45平 2650包物业费随时看房15949233335](https://www.douban.com/group/topic/168242400/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168152736/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163939/)
-
-[黄龙隔壁中融城市花园，汇丰公寓一室一厅出租，独立厨卫，价格实惠，生活方便](https://www.douban.com/group/topic/168234555/)
-
-[【黄龙】 无中介费 世贸丽晶城 百脑汇 支付宝 德力西大厦 整租一室精装单身公寓有飘窗 可月付 照片实拍](https://www.douban.com/group/topic/163148572/)
-
-[和睦地铁口，蓝钻天城，精装一室民用电，包物业2650，大悦城，七乐汇生活广场，家电齐全，实图实价，看房13336163958微同号](https://www.douban.com/group/topic/168232926/)
-
-[浙商财富中心蚂蚁金服附近有一室一厅精装修拎包入住](https://www.douban.com/group/topic/168239834/)
-
-[湘湖 地铁一号线 湖头陈花苑](https://www.douban.com/group/topic/168088436/)
-
-[萧山2号线地铁口杭发厂单身公寓无中介银隆百货万象汇](https://www.douban.com/group/topic/168240631/)
-
-[古墩路浙商财富中心蘑菇街对面一室一厅精装拎包入住](https://www.douban.com/group/topic/168238967/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168090945/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166444879/)
-
-[大悦城三宝郡庭朝南一室一厅带管道煤气，精装修，天堂软件园 黄龙 远洋首选](https://www.douban.com/group/topic/168180172/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168233498/)
-
-[金地广场 浙江交通职业技术学院整租一室 最低1000包物业 看房联系18685076441微信同号](https://www.douban.com/group/topic/168163603/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166934/)
-
-[大悦城附近（三宝郡庭），一室一厅，3300无中介费，随时看房，拎吧入住看房电话18158105920](https://www.douban.com/group/topic/168238229/)
-
-[三宝郡庭精装一室出租 近大悦城城西银泰](https://www.douban.com/group/topic/167955930/)
-
-[丰潭路地铁口   沁雅花园，朝南一室一厅，带阳台，独卫公厨    房东直租   19951787075](https://www.douban.com/group/topic/168089169/)
-
-[【出租】【蓝钻天城】 精装一室朝南民用电 和睦地铁口 大悦城 城西银泰](https://www.douban.com/group/topic/168158226/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168203620/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168198907/)
-
-[房东出租紫荆花路88号嘉禾花苑一室一厅精装修拎包入住](https://www.douban.com/group/topic/168237778/)
-
-[中粮大悦城对面，三宝郡庭一室独立厨卫，燃气厨房带个餐厅，租金2800一个月，可短租](https://www.douban.com/group/topic/167930498/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438257/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168205467/)
-
-[2020太“南”了  想找一人合租彭埠地铁附近的两居房](https://www.douban.com/group/topic/168192540/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/168215958/)
-
-[浙商财富中心，蚂蚁金服联合大厦附近 房东出租 精装全配一室一厨一卫套房1800元](https://www.douban.com/group/topic/168125205/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166711/)
-
-[西湖区学院路地铁口支付宝大楼黄龙万科附近精装修一室一厅带大露台整租](https://www.douban.com/group/topic/168110901/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163778/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168225676/)
-
-[房东有独立一室一厅翠苑三区，方方正正](https://www.douban.com/group/topic/167944635/)
-
-[大悦城，乐堤港附近，一室一厅一卫，大露台](https://www.douban.com/group/topic/168153597/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167923023/)
-
-[大悦城两房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168002801/)
-
-[独门独户一室带阳台 只要2300](https://www.douban.com/group/topic/168176487/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅朝南带阳台](https://www.douban.com/group/topic/168005886/)
-
-[西湖区，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁附近](https://www.douban.com/group/topic/168232204/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 东方福邸 一室一厅朝南落地窗 采光充裕 超便宜 可押一付一](https://www.douban.com/group/topic/168220661/)
-
-[大悦城商场，庆隆苑二期小区，朝南带阳台一室一厨一卫，独立冰箱洗衣机，视野开阔，楼前无遮挡物，特价2550，18391585606](https://www.douban.com/group/topic/168040849/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅带管道煤气](https://www.douban.com/group/topic/168109832/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 保利香槟国际 一室一厅 特价2千出头 可押一付一](https://www.douban.com/group/topic/168220373/)
-
-[黄龙万科中心对面  文三路超大整租一室一卫    单身公寓 密码锁 直接拎包入住](https://www.douban.com/group/topic/168156507/)
-
-[【房东出租】滨江长河 白马湖小区 孔雀苑 2室1厅1厨1卫 整租 4100](https://www.douban.com/group/topic/168086113/)
-
-[【整套出租】【房东直租】文一路翠苑，一室一厅，精装修](https://www.douban.com/group/topic/168024933/)
-
-[七堡杨柳郡小卧室找室友-非中介](https://www.douban.com/group/topic/146222033/)
-
-[拱墅区，大悦城附近三宝郡庭，朝南一室一厅独立厨卫，管道煤气，带阳台，价格优惠需要滴滴
-
-](https://www.douban.com/group/topic/168153485/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168006606/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167935463/)
-
-[三宝郡庭一室一厨一卫，大悦城附近，随时看房 ，年付2100包物业费没有中介费](https://www.douban.com/group/topic/168229121/)
-
-[拱墅区，大悦城旁边 庆隆苑一室独立厨卫带阳台](https://www.douban.com/group/topic/168002055/)
-
-[房东出租文三西路古墩路口小区房](https://www.douban.com/group/topic/167995236/)
-
-[No中介【个人出租】闸弄口地铁站附近，无中介费，朝南阳光房，情侣，姐妹，兄弟都可以。](https://www.douban.com/group/topic/168063949/)
-
-[二号线学院路、枫华府第，精装一室一厅独立厨卫。只要2000多、](https://www.douban.com/group/topic/167903897/)
-
-[房东直租，避免中介，避免二房东。价格美丽，押一付一，一室一厨一卫只要1300每月](https://www.douban.com/group/topic/167927514/)
-
-[ 庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看](https://www.douban.com/group/topic/168112996/)
-
-[ 城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948391/)
-
-[【西湖区】九玺天成西区  金地自在城栖霞居  一居室](https://www.douban.com/group/topic/168170964/)
-
-[出租文三西路浙商财富中心、联合大厦附近一室一卫](https://www.douban.com/group/topic/168155105/)
-
-[朝南独立厨卫一室 只要2000 ](https://www.douban.com/group/topic/168165689/)
-
-[古翠路地铁口，和悦公寓，一室一卫一阳台，价格3000微信s488805276](https://www.douban.com/group/topic/167903586/)
-
-[黄龙万科华星时代广场旁、精装一室独立厨卫，单身公寓。可拎包入住！](https://www.douban.com/group/topic/167902946/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466471/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490284/)
-
-[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
-
-[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
-
-[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
-
-[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
-
-[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/168285890/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 客厅有电视 中间楼层](https://www.douban.com/group/topic/168286291/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168340334/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468135/)
-
-[房东出租文三西路古墩路紫荆花路小区房](https://www.douban.com/group/topic/168470320/)
-
-[和睦地铁站5号线，蓝砖天成一室一厅，只要2600
-大悦城  银泰百货铂澜，，联系电话:17607949368（微信同号）](https://www.douban.com/group/topic/168449092/)
-
-[翠苑一区精装一室一厅一厨出租拎包入住，近地铁，物美，联系电话：13279203971 微信：18593040504](https://www.douban.com/group/topic/168529101/)
-
-[【阿里未来科技城】西溪永乐城 隔断两房两厅一卫 无中介 可月付 随时看房](https://www.douban.com/group/topic/168530794/)
-
-[城西银泰 大悦城 1900独立卫生间独立厨房](https://www.douban.com/group/topic/168518183/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168476944/)
-
-[嘉绿福苑，精装一室一厅，电梯房，古翠路地铁口附近，诚心出租，看房联系:13426524489](https://www.douban.com/group/topic/168490690/)
-
-[学院华庭一室一厅一厨出租，可短租可月租，装修清爽，拎包入住，联系电话：1327920397，微信：18593040504](https://www.douban.com/group/topic/168519010/)
-
-[西湖区|翠苑一区一室一厅  精致装修|房东直租 文青理想居所](https://www.douban.com/group/topic/168372010/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168362536/)
-
-[天堂软件园附近中天西城纪一室整租只要2950元需要的抓紧，手慢无，17605814007微信同号](https://www.douban.com/group/topic/168486040/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168390684/)
-
-[翠苑一区 学院路地铁口 精装一室小套，看房有钥匙15103801065微信同号](https://www.douban.com/group/topic/168272989/)
-
-[翠苑一区 学院路地铁口 文二路学院路口 整租精装一室 2楼 燃气管道 随时看房](https://www.douban.com/group/topic/168466498/)
-
-[华门世家 精装一室 独立厨卫  可押一付一  近德力西 支付宝 黄龙万科 颐高数码](https://www.douban.com/group/topic/168513619/)
-
-[乐堤港 大悦城旁 一室一厅 燃气厨房 精装修全新家具 拎包入住  便宜出租](https://www.douban.com/group/topic/168364831/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168247315/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466100/)
-
-[【钱江路地铁站】超大单价](https://www.douban.com/group/topic/166311935/)
-
-[拱墅区 城西银泰对面 三坝地铁口 60平一室一厅带阳台 家具齐全 拎包入住](https://www.douban.com/group/topic/168286539/)
-
-[大悦城三宝郡庭朝南阳台一室卫生间干湿分离价格2000多一点滴滴](https://www.douban.com/group/topic/168407943/)
-
-[近黄龙体育中心一室一厅 电梯房高档小区看房方便 看房联系18868448262](https://www.douban.com/group/topic/168512748/)
-
-[汽车北站对面 大悦城附近 五号线和睦地铁口附近 花园岗小区 一室一厨卫 朝南带阳台1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/168484563/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 黄金楼层 家具齐全](https://www.douban.com/group/topic/168289836/)
-
-[转租大悦城莫干山路大悦城旁 三宝郡庭一室整租 1000➕](https://www.douban.com/group/topic/168010240/)
-
-[天堂软件园中天mcc大悦城零距离，房东直租朝南精装一室一厅，燃气做饭，三宝郡庭特价3500，无中介费随时看房微信13067790717](https://www.douban.com/group/topic/168378260/)
-
-[学院北路（雍荣华庭）近地铁二号线三墩站，近龙湖天街，朝南主卧一室独立厨卫2200元！](https://www.douban.com/group/topic/168504078/)
-
-[沁雅花园，朝南独卫带阳台。黄龙，华星时代广场，丰潭路地铁附近](https://www.douban.com/group/topic/168526905/)
-
-[城西银泰附近 美都广场大悦城旁边精装一室 随时拎包入住。](https://www.douban.com/group/topic/168026666/)
-
-[出租西湖区房屋，耀江文萃苑朝南独卫。黄龙，枫华府第，学院路地铁附近](https://www.douban.com/group/topic/168525756/)
-
-[拱墅区大悦城旁边 三宝郡庭单身公寓整租一室](https://www.douban.com/group/topic/168041682/)
-
-[大悦城 莫干山路 都景公寓一室整租](https://www.douban.com/group/topic/168512285/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168466810/)
-
-[再次寻找合租女生室友，地点翠苑三区，四区](https://www.douban.com/group/topic/168487880/)
-
-[拱墅区 城西银泰对面 三坝地铁口『芳满庭』60平一室一厅带阳台 装修看图](https://www.douban.com/group/topic/168290529/)
-
-[黄龙万科中心对面  文三路254号
-超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，微信18867800479](https://www.douban.com/group/topic/168311140/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168300436/)
-
-[黄龙 精装漫果公寓出租 一室 首月特惠](https://www.douban.com/group/topic/168502563/)
-
-[天堂软件园中粮大悦城附近（三宝郡庭）一室一厅燃气厨房 拎包入住精装修](https://www.douban.com/group/topic/168498746/)
-
-[近黄龙商圈 支付宝大楼  黄龙万科中心对面  文三路254号
-超大整租一室一卫   45平方 单身公寓 ](https://www.douban.com/group/topic/168456105/)
-
-[二号线古翠路地铁口 嘉绿名苑朝南一室 拎包入住 绿码看房](https://www.douban.com/group/topic/166043154/)
-
-[拱墅区 大悦城对面 三宝郡庭 一室一厅独立厨卫管道煤气出租](https://www.douban.com/group/topic/168506181/)
-
-[【免1个月租金 西湖区近地铁2号线】【短租长租】](https://www.douban.com/group/topic/168434324/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468154/)
-
-[房东直租，无需中介费，城西益乐路地铁二号线嘉绿青苑](https://www.douban.com/group/topic/168517846/)
-
-[嘉绿福苑，近古翠路地铁口，近世纪联华超市，一室一厅一厨一卫，精装修，拎包入住，每月租金4500元。联系电话18668180878，微信同号。](https://www.douban.com/group/topic/168477680/)
-
-[西湖区 教工路小区 一室一厅 带天然气厨房 刚空出 近黄龙体育场 德力西大厦 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/168277911/)
-
-[[非中介]滨江宝龙华盛达旁！精装整租一室2700！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
-
-[房东出租精装小区房文三西路古墩路紫荆花路](https://www.douban.com/group/topic/168484775/)
-
-[西湖区，黄龙万科旁边，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁](https://www.douban.com/group/topic/168401936/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168125889/)
-
-[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168419949/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/168495190/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168464593/)
-
-[房东直租无中介费出租文一路益乐新村北区价1000元](https://www.douban.com/group/topic/168508082/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167182104/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167162883/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157946498/)
-
-[庆隆苑1500元 一室一厨一卫 精装包物业 18268159256](https://www.douban.com/group/topic/167154121/)
-
-[城西银泰附近，临近天堂软件园，超大一室一厨一卫，家电齐全，拎包入住，看房微信18758155054](https://www.douban.com/group/topic/167084382/)
-
-[【转租】蒋村花园如意苑一室一厅+朝南大阳台](https://www.douban.com/group/topic/166555615/)
-
-[萍水街地铁口 天堂软件园 城西银泰 精装独立厨卫 带阳台出租 管道燃气 可月付](https://www.douban.com/group/topic/155290575/)
-
-[杭州拱墅区 大悦城旁 三宝骏庭一室一厅有阳台独卫 因为工作原因急需转出](https://www.douban.com/group/topic/167179239/)
-
-[二号线古翠路地铁口 文一物美零距离 天堂软件园 翠苑三区内保阳台一室出租](https://www.douban.com/group/topic/167165292/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141737/)
-
-[大悦城，三宝郡庭，天然气厨房，一室一厅2680](https://www.douban.com/group/topic/167152352/)
-
-[2号线三坝地铁口独门独户一室，近城西银泰，黄龙万科直达](https://www.douban.com/group/topic/160814207/)
-
-[庆隆苑 精装一室朝南 干净装修 近天堂软件园 大悦城  特价包物业 年付1450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167119060/)
-
-[[非中介]滨江西兴！精装整租一室3500！独立厨卫！近海康网易阿里！滨河地铁 ！滨江天街](https://www.douban.com/group/topic/163164253/)
-
-[近大悦城  天堂软件园 黄龙打车起步价 精装一室独立厨卫出租 价格实惠 支持月付](https://www.douban.com/group/topic/154432807/)
-
-[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097150/)
-
-[房东直租 三宝郡庭精装一室 近大悦城乐堤港](https://www.douban.com/group/topic/167138333/)
-
-[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
-
-[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167163062/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132672/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166544763/)
-
-[【滨江-贺田尚城】朝南大阳台主卧个人转租 近中控、海创园、四号线中医药大学（限女生）](https://www.douban.com/group/topic/167095096/)
-
-[浙大玉泉校区零距离 支付宝 百脑汇 朝南一室一厅出租](https://www.douban.com/group/topic/167071669/)
-
-[益乐新村北六区，押一付一，1000-1300每月，走过路过不要错过，欢迎电联](https://www.douban.com/group/topic/167025287/)
-
-[【 房屋出租】兰庭公寓，精装一房房，采光好，随时看房，拎包入住，近学院路铁。家具家电齐全，有意者电话联系：18712601440微信同号](https://www.douban.com/group/topic/167144561/)
-
-[二号线学院路地铁口零距离枫华府第 朝南一室独立厨卫出租](https://www.douban.com/group/topic/167057127/)
-
-[房东直租 2号线  白洋附近中铁西湖国际城 精装修一室一厨一卫，朝北家电齐全拎包入住 房东直租 无中介费1800](https://www.douban.com/group/topic/167007664/)
-
-[王家坞蚂蚁金服铂莱雅有赞汽车西站支付宝北高峰山脚一室一厨一卫朝南阳台日式建筑](https://www.douban.com/group/topic/167142967/)
-
-[蚂蚁金服、浙商财富中心隔壁嘉绿景苑一室一厨一卫朝南，豪装](https://www.douban.com/group/topic/166909628/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973193/)
-
-[庆隆苑一室一厨一卫朝南带阳台整租1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/167118830/)
-
-[三宝郡庭朝南一室一厅，民宿风格，卫生间干湿分离，朝南主卧带阳台](https://www.douban.com/group/topic/165968512/)
-
-[走过路过不要错过哟，优惠出租，押一付一，1000-1300不等的房间都有，任君选择](https://www.douban.com/group/topic/166823510/)
-
-[求租，黄龙金茂悦附近，租一个一室一厅预算2500左右，着急入住](https://www.douban.com/group/topic/165780692/)
-
-[黄龙旁精装朝南一室朝南，独立厨卫。可拎包入住！](https://www.douban.com/group/topic/167128583/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166921585/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902567/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167148918/)
-
-[余杭阿里未来科技城西溪君庐三室一厅一厨两卫两次卧出租（1300/1500）](https://www.douban.com/group/topic/167109569/)
-
-[城西银泰，天堂软件园，中天MCC，大悦城，西城时代商务中心](https://www.douban.com/group/topic/161925439/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166768110/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722886/)
-
-[汇合城  一室一厅  近天堂软件园  2号线古翠路学院路](https://www.douban.com/group/topic/167173189/)
-
-[原禾大厦，金家渡地铁口！800一室独卫！](https://www.douban.com/group/topic/166626767/)
-
-[拱墅5号线和睦站地铁口，豪华装修公寓房房东直租](https://www.douban.com/group/topic/167132198/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976825/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065327/)
-
-[地铁二号线学院路地铁口和古翠路地铁口附近翠苑庆隆路7号一室一厅一厨一卫2300低价出租](https://www.douban.com/group/topic/167256284/)
-
-[七天起租拎包入住 西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166972589/)
-
-[翠苑四区2号线古翠路地铁口古翠路地铁口  黄龙万科 天堂软件园 嘉绿名苑 世纪新城一室一厅一厨一卫精装修](https://www.douban.com/group/topic/166920952/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台2000多一点 房间好相比同户型最低价还便宜200块](https://www.douban.com/group/topic/167261995/)
-
-[萍水街地铁口附近 城西银泰旁 天堂软件园 附近精装一室一厅独立厨卫出租 管道燃气 价格实惠](https://www.douban.com/group/topic/151497411/)
-
-[【求租或招室友】虾龙圩地铁口附近，望月对面，天虹公寓，三室的一室，周边设施齐全拎包入住](https://www.douban.com/group/topic/167030258/)
-
-[一室一厅翠苑三区房子 阳光好房](https://www.douban.com/group/topic/167272235/)
-
-[城西银泰附近 大悦城旁 庆隆苑小区 一室一厨一卫带管道煤气 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
-
-[学院路地铁口枫华府第单身公寓出租，一室一厅45方，华星时代广场，支付宝大楼，](https://www.douban.com/group/topic/167249176/)
-
-[黄龙商圈 浙大玉泉 德力西 庆丰新村 精装一室单身公寓 拎包入住 看房随时](https://www.douban.com/group/topic/167263896/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167231863/)
-
-[西城时代 精装一室一厅年付2450 无中介费 包物业 近城西银泰 文一路 天堂软件园 联系18106515369（微信同号）](https://www.douban.com/group/topic/167260957/)
-
-[黄龙起步价大悦城原户型一室一厅价格美丽只要3000+随时看房](https://www.douban.com/group/topic/167225518/)
-
-[城西银泰 天堂软件园 萍水街地铁口 精装一室一厅一卫一厨一阳台出租管道燃气](https://www.douban.com/group/topic/151497874/)
-
-[[个人转租] 蒋村花园广安苑单间带独卫大阳台1650 近西溪银泰西溪首座西溪湿地西溪天街，5号线浙大紫荆港站](https://www.douban.com/group/topic/161772202/)
-
-[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065172/)
-
-[大悦城零距离，毗邻乐堤港，交通便利休闲娱乐方便，一室一厨一卫转租，40平空间大，燃气，峰谷电，家电齐全，2450元/月，无中介费，速看](https://www.douban.com/group/topic/167262594/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/166775070/)
-
-[古翠路地铁口、世纪新城，一室朝南独卫。可领包入住！](https://www.douban.com/group/topic/167247123/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947145/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅独立厨卫朝南带阳台，](https://www.douban.com/group/topic/167266115/)
-
-[大悦城旁美都广场精装一室一厅，价格1880，包物业，看房热线17838853515（联系请说豆瓣）](https://www.douban.com/group/topic/166431822/)
-
-[房东直租 三宝郡庭精装一室出租 近大悦城乐堤港](https://www.douban.com/group/topic/167139186/)
-
-[拱墅区 地铁房 朝南带阳台招租 独立厨卫 『西铭苑』宜家装修 家具齐全](https://www.douban.com/group/topic/160800344/)
-
-[[个人出租套房]西溪湿地旁，淘宝城边的西溪水岸1室1厅1阳1飘窗1厨1卫精装房](https://www.douban.com/group/topic/167255055/)
-
-[大悦城 远洋乐提港 天堂软件园 庆隆苑  一室一厅一卫 40平 天然气厨房 整租 价格2600 看房15906652641微信同步](https://www.douban.com/group/topic/166555996/)
-
-[无中介费 西湖区西城广场 财富中心 z空间 支付宝附近锋尚苑一室loft整租最低3390包物业看房18566733107](https://www.douban.com/group/topic/167183114/)
-
-[拱墅区 大悦城对面 三宝郡庭整租一室一厅一厨一卫 带天然气 包物业费 家具家电全新  价格2300每个月](https://www.douban.com/group/topic/167274582/)
-
-[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
-
-[丰潭路 古翠路地铁口 精装loft一室出租 家电齐全 城西银泰零距离 随时看房入住! 电话通微信17551612413](https://www.douban.com/group/topic/144519358/)
-
-[翠苑四区一室一厅一厨一卫出租靠近古翠路地铁口](https://www.douban.com/group/topic/167073959/)
-
-[【西湖区】庆丰新村 2室1厅整租 ](https://www.douban.com/group/topic/166702790/)
-
-[城区房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131298/)
-
-[城西银泰 天堂软件园  萍水街地铁口上尚庭一房一厅一卫出租 房东直租 价格实惠 支持各种付款 管道燃气](https://www.douban.com/group/topic/151496666/)
-
-[【杭州城西】学院路站  枫华府第 单间 价格美丽](https://www.douban.com/group/topic/166696237/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅单间独立厨卫](https://www.douban.com/group/topic/167217660/)
-
-[拱墅区：临近大悦城，美都广场，整租一室，1900每月，没有任何中介费用！](https://www.douban.com/group/topic/166610528/)
-
-[出租文三西路浙商财富中心一室一卫](https://www.douban.com/group/topic/167254547/)
-
-[城西房东直租，交通便利！价格美丽](https://www.douban.com/group/topic/166134250/)
-
-[黄龙，
-嘉绿景苑东6-1204
-4号，一室独立卫生间 价格2000出头，
-3号两户共卫，1700。[社会社会]](https://www.douban.com/group/topic/166902594/)
-
-[ 学院北路（雍荣华庭）龙湖天街附近，朝南飘窗一室独立厨卫2200元！需要的联系我哦18391585606
-](https://www.douban.com/group/topic/166562614/)
-
-[拱墅区 西城时代商务中心 精装修朝南 城西银泰旁 天堂软件园 一室一厅
-包物业最低2450
-电话13655719373](https://www.douban.com/group/topic/167235104/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167250671/)
-
-[个人转租 古翠路 毛家桥公寓一室一厅 天堂软件园对面](https://www.douban.com/group/topic/126507293/)
-
-[三宝郡庭精装一室出租近大悦城乐堤港](https://www.douban.com/group/topic/167327308/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420420/)
-
-[大悦城【天悦府】黄龙打车起步价朝南一室大飘窗独卫 温馨舒适型公用管道煤气厨房 房东直租无中介费 可月付15858183498](https://www.douban.com/group/topic/166993202/)
-
-[中大银泰城城市学院精装一室2400三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
-
-[嘉绿福苑，古翠路地铁口，西湖国际 世纪联华 精装一室一厅 看房联系15103801065微信同号](https://www.douban.com/group/topic/167444253/)
-
-[【房东直租】拱墅区庆隆苑 单间独卫带厨房](https://www.douban.com/group/topic/165703358/)
-
-[无中介转租 聚丰公寓 黄龙支付宝玉泉公元大厦 一室0厅1卫 独立厨卫大阳台朝南](https://www.douban.com/group/topic/167456524/)
-
-[无中介费古翠路地铁口几百米、益乐路丽都会15米一室一厨一卫（天然气厨房）](https://www.douban.com/group/topic/167450675/)
-
-[拱墅区 庆隆苑 一室一厅 45平 带大阳台 错过既无 联系方式18758543733微信同号](https://www.douban.com/group/topic/167443822/)
-
-[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167455207/)
-
-[九莲新村精装一室 独门独户 近地铁 颐高数码 黄龙万科 德力西 支付宝  火炬大厦](https://www.douban.com/group/topic/167445158/)
-
-[城西银泰对面 直租 阮家居仅需3399两室一厅一卫一厨 小清新风格 价格实惠](https://www.douban.com/group/topic/161260435/)
-
-[拱墅中大银泰城市学院旁精装一室2400三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
-
-[双湾国际城 精装一室loft 浙江大学城市学院 信联文创园 天瑞国际 包物业2600 拎包入住 随时看房13306718628微信同号](https://www.douban.com/group/topic/167442246/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167448050/)
-
-[同德医院 翠苑物美汇合城 古翠路地铁口翠苑三区干净清爽一室一厅带院子](https://www.douban.com/group/topic/167454981/)
-
-[大悦城零距离 黄龙打车起步价中粮天悦朝南主卧飘窗一室独立厨卫2600 随时看房可押一付一15858183498](https://www.douban.com/group/topic/167147329/)
-
-[古翠路地铁口精装一室一厅一厨一卫低价出租，周边物美超市，同德医院等](https://www.douban.com/group/topic/167382951/)
-
-[雨天阴天过后，又到春暖花开时！租房？快到乐柚公寓城西银泰店这里来！ 
-](https://www.douban.com/group/topic/167370227/)
-
-[复地壹中心 精装一室 客卧分离 最低2500包物业 汽车北站 学院府 蓝孔雀 莫干山路 看房联系13697948554微信同号](https://www.douban.com/group/topic/167442312/)
-
-[上城区凤山门，离西湖900米，一室一厅一厨一卫整租](https://www.douban.com/group/topic/166724367/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167440324/)
-
-[世纪新城，精装一室单身公寓 古翠路地铁口 价格实惠2000+  看房联系15103801065微信同号](https://www.douban.com/group/topic/167340983/)
-
-[黄龙万科打车起步价 大悦城对面 近远洋乐提港 一室一厅一卫 天然气厨房 整租 价格3200 无中介费管理费15906652641微信同步](https://www.douban.com/group/topic/167310177/)
-
-[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
-
-[大悦城对面，三宝郡庭小区，一室一厅一厨一卫带阳台，天然气厨房，直达天堂软件园，黄龙万科，喜欢的，未租可撩18391585606，只要3888](https://www.douban.com/group/topic/167358062/)
-
-[拱墅大悦城边三宝郡庭，一室一厅，天然气厨房](https://www.douban.com/group/topic/167445801/)
-
-[房东直租](https://www.douban.com/group/topic/167452046/)
-
-[文三路 丽都会走路3分钟 精装一室 独立厨卫  古翠地铁口附近 近黄龙 支付宝](https://www.douban.com/group/topic/167378267/)
-
-[2号线三坝地铁口一室公寓独门独户民用水电 同人精华蓝钻天成 申花城西银泰 创道洋人街 黄龙金茂悦 耀江文鼎苑近天堂软件园 5号线萍水街地铁口](https://www.douban.com/group/topic/167232022/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
-
-[学院路 古翠路地铁口翠苑三区 物美旁边 一室一厅一厨一卫一院子转租，民用水电 整租的看房可联系13067853821VX同号](https://www.douban.com/group/topic/167420779/)
-
-[本人房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167442065/)
-
-[萧山区丰北一苑转租](https://www.douban.com/group/topic/167322965/)
-
-[转塘 美院旁 精装公寓 钱塘one 一室一厅 家具家电齐全 拎包入住](https://www.douban.com/group/topic/166952638/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风出租 好房不多](https://www.douban.com/group/topic/166698990/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167376557/)
-
-[大悦城，城西银泰 三宝郡庭一室朝南独立厨卫带阳台](https://www.douban.com/group/topic/167440574/)
-
-[大悦城旁整租一房特价出租，小区环境好，停车方便
-大悦城旁整租一房特价出租，小区环境好，停车方便
-](https://www.douban.com/group/topic/167442889/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326369/)
-
-[大悦城边三宝郡庭，一室一厅一厨一卫，管煤，独立厨卫](https://www.douban.com/group/topic/167384114/)
-
-[中国铁建城城市学院树人大学旁精装品牌公寓非中介可短租月付](https://www.douban.com/group/topic/157847882/)
-
-[庆隆苑一室一厅带天然气 临近大悦城 城西银泰  物美 出入方便](https://www.douban.com/group/topic/167357914/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167123973/)
-
-[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
-
-[房东有房出租，西湖区文一西路，一室一卫单间价格900元，有意向请联系13857120608](https://www.douban.com/group/topic/167344320/)
-
-[大悦城附近庆隆苑朝南带阳台一室出租，中间楼层，特价2200](https://www.douban.com/group/topic/167439440/)
-
-[【 房屋出租】翠苑二区，精装一一室一厅，采光好，楼层好随时看房，拎包入住。地铁。家具家电齐全，有意者电话联系：18712601440](https://www.douban.com/group/topic/167338791/)
-
-[【近天堂软件园，古翠路地铁站】桃源春居三室一厅中一室，四月到期可续租](https://www.douban.com/group/topic/167438689/)
-
-[华星时代广场 支付宝隔壁 中兴文都苑 精装一室独卫 带阳台 近古翠地铁口](https://www.douban.com/group/topic/167339368/)
-
-[【转租】押金赠送！竹海水韵排屋超大单间](https://www.douban.com/group/topic/167453341/)
-
-[大悦城 城西银泰 三宝郡庭 标准一室一厅 拎包入住VX 电话18458891030](https://www.douban.com/group/topic/167330867/)
-
-[蓝钻天成 精装一室 年付2650包物业 和睦地铁口 城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167331139/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租](https://www.douban.com/group/topic/166814376/)
-
-[大悦城对面，三宝郡庭一室一厅独立厨卫，燃气厨房，南北通透，可以养宠物，使用情侣，闺蜜入住。租金3000一个月。](https://www.douban.com/group/topic/167440576/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫](https://www.douban.com/group/topic/167385233/)
-
-[房东直租，押一付一，1000-1300每月](https://www.douban.com/group/topic/166823669/)
-
-[丰潭路地铁口一室一卫房东直租](https://www.douban.com/group/topic/167430335/)
-
-[翠苑二区精装标准一室一厅自住装修近学院路地铁口，家具齐全拎包入住，电话联系15700183890，微信同号。](https://www.douban.com/group/topic/167321266/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490401/)
-
-[原禾大厦一室独卫900包物业！没有服务费！免中介费！](https://www.douban.com/group/topic/167031443/)
-
-[华星路 古翠地铁口 嘉绿福苑精装修一室一厅 电梯房朝南 租金4000块 同户型最便宜的一套](https://www.douban.com/group/topic/167377339/)
-
-[大悦城附近（三宝郡庭）朝南一室一厅一厨一卫，3000+随时看房，拎包入住看房微信电话18158105920](https://www.douban.com/group/topic/167384924/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166722950/)
-
-[大悦城边庆隆苑一室管道煤气独立厨卫](https://www.douban.com/group/topic/167384420/)
-
-[东方悦府（近湘湖地铁口）特价950-1600，房东直租无中介费](https://www.douban.com/group/topic/162327408/)
-
-[同德医院 学院路地铁口翠苑三区一室一厅](https://www.douban.com/group/topic/167449330/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167279919/)
-
-[拱墅区太阳城铁建城城市学院树人大学旁精装1室1厅3室2厅非中介可短租月付](https://www.douban.com/group/topic/157848853/)
-
-[【限时日租40】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127574519/)
-
-[2号线沿线 丰谭地铁口100米 天堂软件园 近黄龙 南都银座 单身公寓 一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158026225/)
-
-[房东直租文三西路古墩路口蚂蚁金服、Z空间附近一室一卫](https://www.douban.com/group/topic/167591359/)
-
-[一室一厨一卫，只要1300一月。押一付一，房东直租，益乐新村北六区，欢迎看房](https://www.douban.com/group/topic/167566303/)
-
-[七天起租/月租2K+拎包入住/西湖区青芝坞/黄龙/浙大/文三路学院路 一室精装修](https://www.douban.com/group/topic/166973933/)
-
-[房东有房出租西湖区文一西路益乐新村，一室一卫单间，3楼价格900元 欢迎新房客入住](https://www.douban.com/group/topic/167590237/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167592707/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704643/)
-
-[房东有房出租 西湖区文一西路益乐新村北区，一室一卫单间，价格优惠 欢迎新房客入住，联系电话13857120608微信同步](https://www.douban.com/group/topic/167584325/)
-
-[整租一室一卫，全面消毒，近地铁2号线近天堂软件园](https://www.douban.com/group/topic/167491567/)
-
-[大悦城都景公寓原户型三室一厅整租，刚空出，近远洋 乐堤岗 黄龙](https://www.douban.com/group/topic/167587886/)
-
-[古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租 四楼朝南](https://www.douban.com/group/topic/167559891/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167570464/)
-
-[西湖 沁雅花园 原始主卧出租 朝南带阳台卫生间干湿分离](https://www.douban.com/group/topic/167586138/)
-
-[大悦城三宝郡庭原户型65方一室一厅，刚空出，近物美 学院路 远洋 城西银泰](https://www.douban.com/group/topic/167586555/)
-
-[房东，有一室一厅翠苑三区](https://www.douban.com/group/topic/167581468/)
-
-[地铁口古翠路零距离，二号线住宅公寓拎包入住，标准一室一厅精装修，全配置新家具，独立一室一厨一卫，拎包入住有地下车位可住两人，干湿分离卫生间，](https://www.douban.com/group/topic/167477833/)
-
-[房东直租 汽车西站 珀莱雅 黄龙体育中心边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/167573901/)
-
-[拱墅汽车北站 复尚发展大厦 整租一室 独立厨卫网红公寓 北城中心 学院府 免中介包物业2450 真实房源 看房13306718628微同](https://www.douban.com/group/topic/167562882/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间 ，价格优惠](https://www.douban.com/group/topic/167582926/)
-
-[房东直租，一室一厨一卫，只要1300每月，性价比极高。押一付一，欢迎看房。一室一卫1000-1200每月](https://www.douban.com/group/topic/167566702/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号](https://www.douban.com/group/topic/167497085/)
-
-[出租、学院路、地铁口、翠苑一区、一室一厅、拎包入住、看房随时联系18868448262](https://www.douban.com/group/topic/167565879/)
-
-[拱墅区 锦绣申华坊 3室合租](https://www.douban.com/group/topic/167579939/)
-
-[拱野区 庆隆苑   一室一厅带大阳台  位于大悦城旁 看房联系18758543733微信同号
-拱野区 庆隆苑   一室一厅带大阳台  位于大](https://www.douban.com/group/topic/167497024/)
-
-[翠苑三区一室一厅，天堂软件园附近，家具齐全拎包入住，看房联系我15700183890，微信同号。](https://www.douban.com/group/topic/167565104/)
-
-[教工路131号一室一厅
-文二路古翠路地铁口](https://www.douban.com/group/topic/167141812/)
-
-[房东诚心出租无中介 莫干山路教工路口（都景公寓）大悦城零距离乐堤港零距离 朝南带内包大阳台一室独立厨卫 特价2千+ 可押一付一 随时看房](https://www.douban.com/group/topic/167575854/)
-
-[丰谭路地铁口嘉绿文苑房东出租无中介费](https://www.douban.com/group/topic/167573038/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/167591054/)
-
-[【非中介】直租+整组 杭州滨江迎春南苑 近滨和路地铁口](https://www.douban.com/group/topic/167587522/)
-
-[非诚勿扰近大悦城 城西银泰 天堂软件园精装一室独立厨卫 管道燃气 支持月付 ](https://www.douban.com/group/topic/166636428/)
-
-[房东直租无中介费出租二楼单间](https://www.douban.com/group/topic/167525257/)
-
-[一室一卫一厨，享受独有空间，只要1300一月。一室一卫1000-1200，押一付一，欢迎看房。益乐新村北六区](https://www.douban.com/group/topic/167566105/)
-
-[【限时日租40元】拎包入住 火车东站 温馨床位合租实习](https://www.douban.com/group/topic/127575462/)
-
-[文新丰谭地铁口   南都花园   一室朝南独卫 干湿分离 燃气厨房 近黄龙万科 天堂软件园 中天MCC 看房联系 无中介费](https://www.douban.com/group/topic/167562152/)
-
-[学院路地铁口，梧桐公寓一房，近黄龙在，支付宝，古荡，翠苑](https://www.douban.com/group/topic/167560445/)
-
-[学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 电梯房](https://www.douban.com/group/topic/167527310/)
-
-[城西房东直租，设施齐全拎包入住](https://www.douban.com/group/topic/166131781/)
-
-[房东直租，免中介费！](https://www.douban.com/group/topic/166049092/)
-
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/157947723/)
-
-[同德医院 学院路地铁口 翠苑三区一室一厅](https://www.douban.com/group/topic/167472727/)
-
-[西湖区桃源春居一室转租，靠近地铁2号线，离天堂软件园和中天mcc超近，无中介费，急租](https://www.douban.com/group/topic/160247217/)
-
-[大悦城三宝郡庭朝南带阳台一室一厅带管煤，价格便宜，靠近乐堤岗 远洋 学院路](https://www.douban.com/group/topic/167068565/)
-
-[吉兴公寓朝北带飘窗房一室一厅一卫一厨（管煤）2700元（可小🔪）
-近莫干山路，近中粮大悦城 远洋乐堤港黄龙打车起步价15858483498](https://www.douban.com/group/topic/167560143/)
-
-[房东直租文三西路古墩路口蘑菇街附近一室一卫](https://www.douban.com/group/topic/167504186/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167308935/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470551/)
-
-[【典雅北欧 房东设计】城西银泰和大悦城的中点，步行只需15分钟](https://www.douban.com/group/topic/153574612/)
-
-[益乐新村北六区，押一付一，1000-1300每月。目前有厨房间哟，欢迎看房](https://www.douban.com/group/topic/167565887/)
-
-[益乐新村北六区，押一付一，1000-1300每月](https://www.douban.com/group/topic/167565718/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539181/)
-
-[房东直租文三西路蘑菇街、联合大厦附近一室一卫](https://www.douban.com/group/topic/167522375/)
-
-[拱墅大悦城三宝郡庭开心麻花隔壁一室独立厨卫价格低](https://www.douban.com/group/topic/167326477/)
-
-[湘湖地铁东方悦府小区原户型主卧朝南独卫带阳台 价格2360可商量  距离地铁口200米 距离公交车站150米 不收中介费](https://www.douban.com/group/topic/167369261/)
-
-[ 文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/167527361/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167114495/)
-
-[2号线沿线 欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158026154/)
-
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165943482/)
-
-[嘉绿苑，标准一室一厅，地铁口](https://www.douban.com/group/topic/149381162/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/167097297/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167184062/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669623/)
-
-[大悦城旁 三宝郡庭一室一厅 装修很好 无中介费](https://www.douban.com/group/topic/165860607/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167681083/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167679916/)
-
-[房东，有独立一室一厅翠苑三区](https://www.douban.com/group/topic/167676832/)
-
-[转租打铁关流水苑三室一厅](https://www.douban.com/group/topic/167681543/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167676158/)
-
-[手慢无！ 地铁一号线江陵路站 龙湖天街 星光大道 康恩贝大厦 单身公寓 ](https://www.douban.com/group/topic/167680733/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646405/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线附近，精装，拎包入住](https://www.douban.com/group/topic/115262528/)
-
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470812/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167703496/)
-
-[西城纪一室一厅loft，房东直租，近城西银泰莱茵矩阵国际天堂软件园](https://www.douban.com/group/topic/167705142/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167698407/)
-
-[和睦地铁口 蓝钻天成 精装一室一厅 年付3150 家电齐全 近城西银泰 大悦城 无中介费 包物业 18106515369（微信同号）](https://www.douban.com/group/topic/167701017/)
-
-[蓝钻天成 精装全明一室 和睦地铁口 包物业3150 近城西银泰 大悦城 看房联系13697948554微信同号](https://www.douban.com/group/topic/167699358/)
-
-[房东直租城西银泰，天堂软件园，五号线萍水街地铁口附近，有房出租](https://www.douban.com/group/topic/167695093/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167698360/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167698151/)
-
-[学院路地铁口 枫华府第 房东直租 无中介 独卫独厨 一室一厅一厨一卫](https://www.douban.com/group/topic/167627350/)
-
-[房东出租大悦城零距离，近天堂软件园、中天mcc、黄龙万科起步价，三宝郡庭一室一厅一厨一卫带天然气可随时看房拎包入住，好房不等人。](https://www.douban.com/group/topic/167624385/)
-
-[大悦城对面小区主卧独卫出租](https://www.douban.com/group/topic/167625300/)
-
-[黄龙体育馆 浙大玉泉 正和居 一室一厅 独立厨卫 房东直租无中介费 看房联系VX18668483391](https://www.douban.com/group/topic/166509899/)
-
-[西湖区【整租一室一卫】近地铁2号线丰潭路地铁口](https://www.douban.com/group/topic/167597752/)
-
-[支付宝大楼，黄龙万科，中融城市花园，标准一室，独立厨卫，带大院子，非常适合养宠物，价格3000/月。☎️135-8878-7237](https://www.douban.com/group/topic/157704365/)
-
-[城西银泰天堂软件园附近 精装一室独立厨卫出租](https://www.douban.com/group/topic/167620472/)
-
-[大悦城附近精装一室价格优惠](https://www.douban.com/group/topic/167689637/)
-
-[拱墅区 三宝郡庭 大悦城 边一室一厅独立厨卫南北通透](https://www.douban.com/group/topic/165954414/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665646/)
-
-[西湖区地铁二号线附近（古翠路，学院路，沈塘桥）求租](https://www.douban.com/group/topic/163947859/)
-
-[房东出租特价，大悦城、绿地广场附近，吉兴公寓一室一厅一厨一卫天然气厨房可随时看房拎包入住现场拍图，无任何费用18758920565](https://www.douban.com/group/topic/167683447/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167646806/)
-
-[学院路地铁口，一室一厅有房出租，现在定房仅需2000+，详询15370751307（微信同步）](https://www.douban.com/group/topic/167695208/)
-
-[学院路地铁口 翠苑一区 精装小套一室 看房联系15103801065微信同号](https://www.douban.com/group/topic/167669480/)
-
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/167609803/)
-
-[翠苑逸景湾](https://www.douban.com/group/topic/144168407/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026984/)
-
-[房东直租，无中介费](https://www.douban.com/group/topic/166049215/)
-
-[个人出租，庆隆苑一室一厨一卫，地铁2号线边，精装，拎包入住](https://www.douban.com/group/topic/115262368/)
-
-[蚂蚁金服 周边一室出租 靠近 莲花街丰潭路 山水人家](https://www.douban.com/group/topic/167685777/)
-
-[【房东直租-西湖区】三墩站地铁口 紫荆天街旁 秀月家园 1800元起](https://www.douban.com/group/topic/166644533/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667084/)
-
-[设施齐全，拎包入住！房东直租无中介费](https://www.douban.com/group/topic/166049000/)
-
-[西湖三墩 303生活广场 新天地两室一厅loft 近西湖科技园 青蓝科创园 2号线墩祥街地铁口 家电齐全，拎包入住 个人房源 3000/月](https://www.douban.com/group/topic/167897551/)
-
-[[非中介]滨江区政府！精装整租一室LOFT！超大阳台！独立厨卫！近海康吉利！江陵地铁](https://www.douban.com/group/topic/167780728/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167898684/)
-
-[大悦城附近价格实惠一室厨卫2000多](https://www.douban.com/group/topic/167898614/)
-
-[房东直租和睦附近，保利香槟国际小区，一室一厅一厨一卫特价出租](https://www.douban.com/group/topic/167891254/)
-
-[拱墅区 城西银泰对面『西铭苑』55平一室一厅带阳台 交通方便 实拍图](https://www.douban.com/group/topic/167833054/)
-
-[稀缺 ！大悦城 城西银泰 三宝郡庭原户型东边套一室一厅 VX电话18458891030](https://www.douban.com/group/topic/167783162/)
-
-[拱墅区 城西银泰对面『西铭苑』一室一厅带阳台 管煤厨房 拎包入住](https://www.douban.com/group/topic/167834096/)
-
-[2号线古翠站毛家桥公寓出租（花鸟市场、华商、翠苑）](https://www.douban.com/group/topic/167799069/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/167850905/)
-
-[城西银泰附近一室一厅一厨一卫带大阳台转租（3月入住可免租）](https://www.douban.com/group/topic/167848508/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装单身公寓朝南一室一厨一卫出租](https://www.douban.com/group/topic/167829255/)
-
-[黄龙万科中心对面  超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，现在定房仅需2000+](https://www.douban.com/group/topic/167897695/)
-
-[黄龙附近  一室一厅一厨一卫   出租    无中介费 随时入住    ](https://www.douban.com/group/topic/167745726/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/167796094/)
-
-[转塘美院附近 篁外出租精装两室一厅和一室一厅和独立厨卫主卧 首月租金免半 房东出租](https://www.douban.com/group/topic/167601341/)
-
-[上城区凯旋新村采荷学区房出租，距四季青骑车仅10分钟](https://www.douban.com/group/topic/167858413/)
-
-[押一付一  龙都大厦  精装一室  近黄龙时代广场 蚂蚁金服 浙大玉泉  黄龙万科](https://www.douban.com/group/topic/167834622/)
-
-[地铁1号线南苑站临平新城房东直租提供特别关怀服务](https://www.douban.com/group/topic/167650955/)
-
-[帮租客转租 绿地广场 新青年广场附近 蓝色霞湾花园朝南带阳台次卧 真实照片](https://www.douban.com/group/topic/167602841/)
-
-[三宝郡庭，精装一室一厅朝南天然气厨房，大悦城0距离，现仅需3100！看中都好说。](https://www.douban.com/group/topic/167853335/)
-
-[【房东直租】文三西路蘑菇街边上小LOFT，一室一厅一厨一卫，租金1600，押一付一，无物业费，无中介费，免费wifi，可以短租。](https://www.douban.com/group/topic/167880393/)
-
-[文二路莫干山路口 浅水湾城市花园朝南独卫主卧 地铁口附近 个人出租](https://www.douban.com/group/topic/167602670/)
-
-[转塘 美院旁。钱塘one精 装公寓 一室一厅  家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166951436/)
-
-[黄龙商圈，梧桐公寓标准一室一厅85²，带40方大露台，稀缺户型，实拍，3月17号到期](https://www.douban.com/group/topic/167815715/)
-
-[西城时代 精装一室一厅 近城西银泰 萍水街地铁口 天堂软件园 特价包物业 年付2450 联系电话18106515369微信同号](https://www.douban.com/group/topic/167709909/)
-
-[西湖家园一室独卫对面有赞，公交直达蚂蚁金服支付宝黄龙](https://www.douban.com/group/topic/167830902/)
-
-[寻找女室友合租嘉绿景苑西园朝南主卧一间](https://www.douban.com/group/topic/167828425/)
-
-[二号线古翠路地铁口翠苑四区一室3000低价出租，速度速度](https://www.douban.com/group/topic/167798443/)
-
-[大悦城附近庆隆苑两室出租，可做一室一厅，年付2330包物业，无中介费](https://www.douban.com/group/topic/167785635/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/167827029/)
-
-[三宝郡庭，大悦城0距离，精装一室一厅天然气厨房，年初最后一波特惠仅需2700！包物业费。](https://www.douban.com/group/topic/167850551/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167818390/)
-
-[整租整租，一室一厨一卫，只要1300每月，就可享受超独立的自由空间，配置齐全，房东直租，押一付一，性价比之王](https://www.douban.com/group/topic/167823207/)
-
-[房东直租 云溪小镇附近 定山西苑小区 整租两室一厅 家电齐全 拎包入住只要 3100元](https://www.douban.com/group/topic/167674577/)
-
-[🚇彭埠、🚇东站、🚇新塘交汇处。（向江来时代中心＊黄龙御公馆）一室或两室出租。💗💗💗豪华装修。如图:](https://www.douban.com/group/topic/167309691/)
-
-[大悦城旁整租三房特价出租，小区环境好，停车方便](https://www.douban.com/group/topic/167442904/)
-
-[三宝郡庭，大悦城0距离，一室一厅，独立厨卫，天然气厨房，便宜出租啦。](https://www.douban.com/group/topic/167665973/)
-
-[西湖区 凤凰创意园附近 定山西苑 整租两室一厅一卫 无需中介费 3100元](https://www.douban.com/group/topic/167674315/)
-
-[【西湖*古荡】精装一室一卫单身公寓，只要1000＋可月付无中介费，支付宝 蚂蚁金服 西湖国际 华星时代](https://www.douban.com/group/topic/162388054/)
-
-[大悦城天堂软件园中天mcc，三宝郡庭房东直租朝南一室一厅燃气做饭一居室，家电齐全特价好房3000，随时入住可月付微信18717806004](https://www.douban.com/group/topic/167735245/)
-
-[大悦城三宝郡庭一室一厅阳台燃气都有价格美丽2000+](https://www.douban.com/group/topic/166976464/)
-
-[黄龙万科中心对面  文三路254号 整租一室一卫   单身公寓 全新佩琦 ，密码锁 直接拎包入住 联系电话17326007895微信同号](https://www.douban.com/group/topic/167891643/)
-
-[拱墅区 大悦城后面 三宝郡庭整租一室一厅一厨一卫 天然气做饭 民用水电 家具家电齐全 价格2300每个月包物业费](https://www.douban.com/group/topic/167851230/)
-
-[押一付一 中融城市花园精装一室 独立厨卫 带阳台  支付宝旁 德力西 黄龙万科 ](https://www.douban.com/group/topic/167716065/)
-
-[人房东，有独立一室一厅翠苑三区房子，方方正正](https://www.douban.com/group/topic/167786229/)
-
-[西湖区翠苑逸景湾](https://www.douban.com/group/topic/140620157/)
-
-[庆隆苑精装一室 独立卫生间独立厨房 2280全佣🎉](https://www.douban.com/group/topic/167779234/)
-
-[【滨江迎春南苑】个人转租---- 地铁口，独立内卫，朝南大阳台，没有公用空间](https://www.douban.com/group/topic/167602053/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166445084/)
-
-[【直租】上城区四季青附近房子出租，凯旋新村九幢](https://www.douban.com/group/topic/167859378/)
-
-[大悦城三宝郡庭朝南一室 一厅带管煤，近学院路  乐堤岗  远洋](https://www.douban.com/group/topic/167132484/)
-
-[走过路过不要错过，一室一厨一卫只要1300每月，押一付一。享受独有空间](https://www.douban.com/group/topic/167822980/)
-
-[个人直租 天堂软件园 翠苑电影大世界 精装修单间1700出租](https://www.douban.com/group/topic/111638648/)
-
-[拱墅区：靠近大悦城，三宝郡庭，一室一厅，管道燃气。2300每月包物业，没有任何中介费用！](https://www.douban.com/group/topic/167827294/)
-
-[城西银泰附近 大悦城旁 黄龙打车起步价
-朝南独门独户55方一室一厅一厨一卫
-民用水电 配置温馨 密码锁 随时可看](https://www.douban.com/group/topic/167889111/)
-
-[拱墅区 大悦城对面 三宝郡庭一室一厅独厨独卫管道煤气出租13968134179微信 有需要的可以加噢](https://www.douban.com/group/topic/167219998/)
-
-[【西湖区·留下·西溪路】整租一室朝南公寓，💰1700，无中介费，近有赞科技、珀莱雅、支付宝、蚂蚁金服，拎包入住](https://www.douban.com/group/topic/167867830/)
-
-[个人出租，庆隆苑单间带独立厨卫2000多，拎包入住](https://www.douban.com/group/topic/115262752/)
-
-[古荡新村西 3楼 一室一卫一厨带阳台 小户型2300 出租](https://www.douban.com/group/topic/167862183/)
-
-[枫华府第一室一厅，一厨一卫，学院路地铁口，黄龙中心，价格2700微信s488805276](https://www.douban.com/group/topic/167783573/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167538460/)
-
-[三宝郡庭，大悦城0距离，精装一室一小厅，天然气厨房。 特惠。](https://www.douban.com/group/topic/167667022/)
-
-[天堂软件园附近一室出租  价格实惠](https://www.douban.com/group/topic/167791654/)
-
-[城西银泰对面『西铭苑』55平一室一厅带阳台 管煤厨房 地铁口500米](https://www.douban.com/group/topic/167840027/)
-
-[临平地铁口 银泰城 欢乐城附近 精装主卧独卫出租 拎包入住](https://www.douban.com/group/topic/167801328/)
-
-[西湖区 文三路 古荡新村西区 一室一厅带院子 近古翠路地铁口 星光城 交通便利 周边配套齐全 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/162728207/)
-
-[ 天目山路学院路口中融城市花园朝南带阳台一室一厨一卫，周边黄龙体育中心](https://www.douban.com/group/topic/167852721/)
-
-[转租翠苑佳居一室一厅一厨一卫整租2500，独门独户](https://www.douban.com/group/topic/167280008/)
-
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943579/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/167132886/)
-
-[【中介勿扰】中天·西城记Loft  一室一厅 房东直租 近城西银泰 天堂软件园](https://www.douban.com/group/topic/167154173/)
-
-[【转租】西湖区 庆丰新村 一室一卫一阳台](https://www.douban.com/group/topic/165951995/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
-
-[华门世家，黄龙万科中心，单身公寓](https://www.douban.com/group/topic/123975070/)
-
-[黄龙金茂悦，三室二卫，小房间招一室友！家具齐全，拎包入住！](https://www.douban.com/group/topic/167848263/)
-
-[【西湖区·留下·西溪路】西溪创立方朝南整租一室，💰1700，无中介费，近有赞科技，汽车西站，支付宝，蚂蚁金服](https://www.douban.com/group/topic/167868662/)
-
-[朝东大床房，优惠出租](https://www.douban.com/group/topic/167772895/)
-
-[没有中介费 地铁口黄龙支付宝旁 华门世家朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/168017679/)
-
-[中粮大悦城莫干山路蓝钻天成朝南大套一室一厅 60方 高楼层 无遮挡  出示绿码看房 3300杭州安个家看房联系15256226892微信同步](https://www.douban.com/group/topic/168018859/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168015155/)
-
-[房东出租朝南浙商财富中心蘑菇街一室一厨一卫拎包入住](https://www.douban.com/group/topic/168020182/)
-
-[蓝钻天成网红公寓楼一室整租  五号线和睦地铁口0距离 大悦城附近 随时看房15949233335](https://www.douban.com/group/topic/168013453/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948863/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007385/)
-
-[古墩路浙商财富中心蘑菇街单身公寓拎包入住](https://www.douban.com/group/topic/168019853/)
-
-[房东出租紫荆花路88号嘉禾花苑单身公寓](https://www.douban.com/group/topic/168019550/)
-
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168094353/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168140177/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168146281/)
-
-[求室友，支付宝，德力西大厦，两居室](https://www.douban.com/group/topic/168150102/)
-
-[【整租】闸弄口地铁站附近，朝南阳光方，无中介费，情侣闺蜜看过来！](https://www.douban.com/group/topic/168064107/)
-
-[西湖翠苑三区公寓出租](https://www.douban.com/group/topic/166026895/)
-
-[嘉绿福苑 文二西路益乐路口 精装一室一厅 近丽都会 古翠路地铁口 随时看房](https://www.douban.com/group/topic/168113179/)
-
-[和睦地铁口旁 和睦院 精装一室LOFT 大悦城 蓝钻天城 七乐汇广场 免中介包物业 2100拎包入住 看房联系13336163958微同号 ](https://www.douban.com/group/topic/168125054/)
-
-[非中介 精装一室一厨一卫套房1800元 家电设施齐全 浙商财富中心，蚂蚁金服联合大厦附近](https://www.douban.com/group/topic/168127455/)
-
-[二号线地铁口 丽都会旁 嘉绿苑多套精装一室出租](https://www.douban.com/group/topic/168115756/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168126489/)
-
-[庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看房](https://www.douban.com/group/topic/168112766/)
-
-[大悦城旁一房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168116751/)
-
-[【个人出租】闸弄口地铁站附近，朝南阳光房，无中介费，情侣闺蜜看过来，兄弟也可以，独住也自由](https://www.douban.com/group/topic/168064186/)
-
-[月付 支付宝黄龙商圈 中融城市花园多套精装一室出租](https://www.douban.com/group/topic/168111222/)
-
-[二号线学院路地铁口，九莲新村，一室一厅，家电齐全](https://www.douban.com/group/topic/168144227/)
-
-[【萧山——钱江世纪城】2号线地铁口 海量房源 房东直租](https://www.douban.com/group/topic/129211908/)
-
-[拱墅区 大悦城 对面三宝郡庭一室一厅管道煤气出租](https://www.douban.com/group/topic/168109522/)
-
-[西湖国际 文二西路 嘉绿苑一室独卫 朝南 温馨单间 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976657/)
-
-[西湖区 文二路翠苑一区一室整租 靠近2号线 价格实惠 随时看房](https://www.douban.com/group/topic/168069465/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住 ](https://www.douban.com/group/topic/168115608/)
-
-[文二西路 丰谭地铁口 嘉绿苑一室 一厨一卫 独门独户 房东直租无中介费 19906549316同微信](https://www.douban.com/group/topic/167976448/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168109346/)
-
-[庆隆苑一室带管煤，精装修，高楼层通风采光好，原户型卫生间，拎包入住](https://www.douban.com/group/topic/168114157/)
-
-[丰潭路地铁口，一室一厅一厨一卫，南都银座，天堂软件园，房东直租](https://www.douban.com/group/topic/155513858/)
-
-[三宝郡庭精装一室出租 近大悦城 城西银泰](https://www.douban.com/group/topic/167955276/)
-
-[黄龙起步价三宝郡庭一室一厅朝南独立厨卫价格美丽看房方便](https://www.douban.com/group/topic/168007186/)
-
-[【闸弄口】地铁站附近，朝南阳光房，无中介费【男女不限】，中介勿扰](https://www.douban.com/group/topic/168079570/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168115734/)
-
-[庆隆苑 朝南一室 1.8米欧式大床，随时看房](https://www.douban.com/group/topic/168112339/)
-
-[庆隆苑朝南一室带大阳台，精装修，楼层高采光好拎包入住](https://www.douban.com/group/topic/168007234/)
-
-[大悦城零距离三宝郡庭朝南一室 独立厨卫2100](https://www.douban.com/group/topic/168052781/)
-
-[（三宝郡庭）近大悦城，黄龙打车起步价！朝南一室一厅一卫一厨，厨房管道煤气3000元！随时看房，拎吧入住电话微信18158105920](https://www.douban.com/group/topic/168077324/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168113889/)
-
-[二号线学院路地铁口，翠苑一区，一室一厅，家电齐全](https://www.douban.com/group/topic/168135253/)
-
-[城西银泰旁天堂软件园中天mcc西城时代商务中心整租独门独户独立厨卫房东直租](https://www.douban.com/group/topic/167539074/)
-
-[学院地铁口 德力西大厦 黄龙万科 一室一卫 价格实惠 房东直租 无中介费 19906549316同微信](https://www.douban.com/group/topic/167972749/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167922934/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168069646/)
-
-[【求租·3月底入住】预算4500左右，求租学院路地铁站附近一室一厅的房子](https://www.douban.com/group/topic/167905459/)
-
-[【个人转租，中介勿扰谢谢配合】2号线古翠路地铁站/嘉绿名苑一室一厅一卫50平，因换城市工作转租。](https://www.douban.com/group/topic/166754913/)
-
-[五号线和睦地铁口  蓝钻天成 一室一厅 价格便宜](https://www.douban.com/group/topic/168133067/)
-
-[【个人出租】闸弄口地铁站附近，朝南独户整租，无中介费](https://www.douban.com/group/topic/168065727/)
-
-[房东直租，押一付一，1000-1300每月，益乐新村北六区，欢迎电联。价格一切好说](https://www.douban.com/group/topic/167927829/)
-
-[【翠苑四区】出租一室一厅精装修（诚意出租/中介勿扰）](https://www.douban.com/group/topic/167375168/)
-
-[黄龙起步价大悦城庆隆苑一室一厅带燃气价格美丽只要2000出头](https://www.douban.com/group/topic/168238380/)
-
-[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242300/)
-
-[五号线和睦地铁口 大悦城附近 蓝钻天成网红公寓楼一室45平 2650包物业费随时看房15949233335](https://www.douban.com/group/topic/168242400/)
-
-[【出租】【蓝钻天成】 精装一室  5号线和睦站  大悦城  天堂软件园](https://www.douban.com/group/topic/168152736/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163939/)
-
-[黄龙隔壁中融城市花园，汇丰公寓一室一厅出租，独立厨卫，价格实惠，生活方便](https://www.douban.com/group/topic/168234555/)
-
-[【黄龙】 无中介费 世贸丽晶城 百脑汇 支付宝 德力西大厦 整租一室精装单身公寓有飘窗 可月付 照片实拍](https://www.douban.com/group/topic/163148572/)
-
-[和睦地铁口，蓝钻天城，精装一室民用电，包物业2650，大悦城，七乐汇生活广场，家电齐全，实图实价，看房13336163958微同号](https://www.douban.com/group/topic/168232926/)
-
-[浙商财富中心蚂蚁金服附近有一室一厅精装修拎包入住](https://www.douban.com/group/topic/168239834/)
-
-[湘湖 地铁一号线 湖头陈花苑](https://www.douban.com/group/topic/168088436/)
-
-[萧山2号线地铁口杭发厂单身公寓无中介银隆百货万象汇](https://www.douban.com/group/topic/168240631/)
-
-[古墩路浙商财富中心蘑菇街对面一室一厅精装拎包入住](https://www.douban.com/group/topic/168238967/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168090945/)
-
-[古翠路地铁口  嘉绿名苑精装一室一厨一卫  价格2000起  多套可选](https://www.douban.com/group/topic/166444879/)
-
-[大悦城三宝郡庭朝南一室一厅带管道煤气，精装修，天堂软件园 黄龙 远洋首选](https://www.douban.com/group/topic/168180172/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168233498/)
-
-[金地广场 浙江交通职业技术学院整租一室 最低1000包物业 看房联系18685076441微信同号](https://www.douban.com/group/topic/168163603/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166934/)
-
-[大悦城附近（三宝郡庭），一室一厅，3300无中介费，随时看房，拎吧入住看房电话18158105920](https://www.douban.com/group/topic/168238229/)
-
-[三宝郡庭精装一室出租 近大悦城城西银泰](https://www.douban.com/group/topic/167955930/)
-
-[丰潭路地铁口   沁雅花园，朝南一室一厅，带阳台，独卫公厨    房东直租   19951787075](https://www.douban.com/group/topic/168089169/)
-
-[【出租】【蓝钻天城】 精装一室朝南民用电 和睦地铁口 大悦城 城西银泰](https://www.douban.com/group/topic/168158226/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168203620/)
-
-[寻找合租女生室友，地点翠苑三区，四区以及附近小区](https://www.douban.com/group/topic/168198907/)
-
-[房东出租紫荆花路88号嘉禾花苑一室一厅精装修拎包入住](https://www.douban.com/group/topic/168237778/)
-
-[中粮大悦城对面，三宝郡庭一室独立厨卫，燃气厨房带个餐厅，租金2800一个月，可短租](https://www.douban.com/group/topic/167930498/)
-
-[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438257/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168205467/)
-
-[2020太“南”了  想找一人合租彭埠地铁附近的两居房](https://www.douban.com/group/topic/168192540/)
-
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/168215958/)
-
-[浙商财富中心，蚂蚁金服联合大厦附近 房东出租 精装全配一室一厨一卫套房1800元](https://www.douban.com/group/topic/168125205/)
-
-[三宝郡庭一室一厅30方  大悦城附近  年付1820  看房联系15868771953](https://www.douban.com/group/topic/168166711/)
-
-[西湖区学院路地铁口支付宝大楼黄龙万科附近精装修一室一厅带大露台整租](https://www.douban.com/group/topic/168110901/)
-
-[庆隆苑一室带燃气   57方  年付2170  看房联系15868771953  不收中介费](https://www.douban.com/group/topic/168163778/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168225676/)
-
-[房东有独立一室一厅翠苑三区，方方正正](https://www.douban.com/group/topic/167944635/)
-
-[大悦城，乐堤港附近，一室一厅一卫，大露台](https://www.douban.com/group/topic/168153597/)
-
-[大悦城边三宝郡庭朝南一室一厅做饭燃气都卫南北通透交通方便](https://www.douban.com/group/topic/167923023/)
-
-[大悦城两房特价出租，小区环境好，停车方便 ](https://www.douban.com/group/topic/168002801/)
-
-[独门独户一室带阳台 只要2300](https://www.douban.com/group/topic/168176487/)
-
-[拱墅区大悦城旁边三宝郡庭一室一厅朝南带阳台](https://www.douban.com/group/topic/168005886/)
-
-[西湖区，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁附近](https://www.douban.com/group/topic/168232204/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 东方福邸 一室一厅朝南落地窗 采光充裕 超便宜 可押一付一](https://www.douban.com/group/topic/168220661/)
-
-[大悦城商场，庆隆苑二期小区，朝南带阳台一室一厨一卫，独立冰箱洗衣机，视野开阔，楼前无遮挡物，特价2550，18391585606](https://www.douban.com/group/topic/168040849/)
-
-[拱墅区大悦城旁边庆隆苑一室一厅带管道煤气](https://www.douban.com/group/topic/168109832/)
-
-[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园 保利香槟国际 一室一厅 特价2千出头 可押一付一](https://www.douban.com/group/topic/168220373/)
-
-[黄龙万科中心对面  文三路超大整租一室一卫    单身公寓 密码锁 直接拎包入住](https://www.douban.com/group/topic/168156507/)
-
-[【房东出租】滨江长河 白马湖小区 孔雀苑 2室1厅1厨1卫 整租 4100](https://www.douban.com/group/topic/168086113/)
-
-[【整套出租】【房东直租】文一路翠苑，一室一厅，精装修](https://www.douban.com/group/topic/168024933/)
-
-[七堡杨柳郡小卧室找室友-非中介](https://www.douban.com/group/topic/146222033/)
-
-[拱墅区，大悦城附近三宝郡庭，朝南一室一厅独立厨卫，管道煤气，带阳台，价格优惠需要滴滴
-
-](https://www.douban.com/group/topic/168153485/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168006606/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/167935463/)
-
-[三宝郡庭一室一厨一卫，大悦城附近，随时看房 ，年付2100包物业费没有中介费](https://www.douban.com/group/topic/168229121/)
-
-[拱墅区，大悦城旁边 庆隆苑一室独立厨卫带阳台](https://www.douban.com/group/topic/168002055/)
-
-[房东出租文三西路古墩路口小区房](https://www.douban.com/group/topic/167995236/)
-
-[No中介【个人出租】闸弄口地铁站附近，无中介费，朝南阳光房，情侣，姐妹，兄弟都可以。](https://www.douban.com/group/topic/168063949/)
-
-[二号线学院路、枫华府第，精装一室一厅独立厨卫。只要2000多、](https://www.douban.com/group/topic/167903897/)
-
-[房东直租，避免中介，避免二房东。价格美丽，押一付一，一室一厨一卫只要1300每月](https://www.douban.com/group/topic/167927514/)
-
-[ 庆隆苑精装一室带管煤，原户型卫生间原户型厨房，特价出租，随时可看](https://www.douban.com/group/topic/168112996/)
-
-[ 城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/167948391/)
-
-[【西湖区】九玺天成西区  金地自在城栖霞居  一居室](https://www.douban.com/group/topic/168170964/)
-
-[出租文三西路浙商财富中心、联合大厦附近一室一卫](https://www.douban.com/group/topic/168155105/)
-
-[朝南独立厨卫一室 只要2000 ](https://www.douban.com/group/topic/168165689/)
-
-[古翠路地铁口，和悦公寓，一室一卫一阳台，价格3000微信s488805276](https://www.douban.com/group/topic/167903586/)
-
-[黄龙万科华星时代广场旁、精装一室独立厨卫，单身公寓。可拎包入住！](https://www.douban.com/group/topic/167902946/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466471/)
-
-[拱墅区 三宝郡庭 大悦城 边精装一室带阳台独立厨卫](https://www.douban.com/group/topic/166490284/)
-
-[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
-
-[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
-
-[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
-
-[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
-
-[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
-
-[城西银泰 汽车北站 三坝地铁旁合租找室友啦](https://www.douban.com/group/topic/168285890/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 客厅有电视 中间楼层](https://www.douban.com/group/topic/168286291/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168340334/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468135/)
-
-[房东出租文三西路古墩路紫荆花路小区房](https://www.douban.com/group/topic/168470320/)
-
-[和睦地铁站5号线，蓝砖天成一室一厅，只要2600
-大悦城  银泰百货铂澜，，联系电话:17607949368（微信同号）](https://www.douban.com/group/topic/168449092/)
-
-[翠苑一区精装一室一厅一厨出租拎包入住，近地铁，物美，联系电话：13279203971 微信：18593040504](https://www.douban.com/group/topic/168529101/)
-
-[【阿里未来科技城】西溪永乐城 隔断两房两厅一卫 无中介 可月付 随时看房](https://www.douban.com/group/topic/168530794/)
-
-[城西银泰 大悦城 1900独立卫生间独立厨房](https://www.douban.com/group/topic/168518183/)
-
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168476944/)
-
-[嘉绿福苑，精装一室一厅，电梯房，古翠路地铁口附近，诚心出租，看房联系:13426524489](https://www.douban.com/group/topic/168490690/)
-
-[学院华庭一室一厅一厨出租，可短租可月租，装修清爽，拎包入住，联系电话：1327920397，微信：18593040504](https://www.douban.com/group/topic/168519010/)
-
-[西湖区|翠苑一区一室一厅  精致装修|房东直租 文青理想居所](https://www.douban.com/group/topic/168372010/)
-
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/168362536/)
-
-[天堂软件园附近中天西城纪一室整租只要2950元需要的抓紧，手慢无，17605814007微信同号](https://www.douban.com/group/topic/168486040/)
-
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168390684/)
-
-[翠苑一区 学院路地铁口 精装一室小套，看房有钥匙15103801065微信同号](https://www.douban.com/group/topic/168272989/)
-
-[翠苑一区 学院路地铁口 文二路学院路口 整租精装一室 2楼 燃气管道 随时看房](https://www.douban.com/group/topic/168466498/)
-
-[华门世家 精装一室 独立厨卫  可押一付一  近德力西 支付宝 黄龙万科 颐高数码](https://www.douban.com/group/topic/168513619/)
-
-[乐堤港 大悦城旁 一室一厅 燃气厨房 精装修全新家具 拎包入住  便宜出租](https://www.douban.com/group/topic/168364831/)
-
-[大悦城   天堂软件园  黄龙万科 三宝郡庭一室一厅  有意向联系V:lw1412670385](https://www.douban.com/group/topic/168247315/)
-
-[大运河旁 近天堂软件园 中天mcc 三宝郡庭一室一卫带阳台，家具家电全齐，价格1850看房联系15067115438微信同号](https://www.douban.com/group/topic/168466100/)
-
-[【钱江路地铁站】超大单价](https://www.douban.com/group/topic/166311935/)
-
-[拱墅区 城西银泰对面 三坝地铁口 60平一室一厅带阳台 家具齐全 拎包入住](https://www.douban.com/group/topic/168286539/)
-
-[大悦城三宝郡庭朝南阳台一室卫生间干湿分离价格2000多一点滴滴](https://www.douban.com/group/topic/168407943/)
-
-[近黄龙体育中心一室一厅 电梯房高档小区看房方便 看房联系18868448262](https://www.douban.com/group/topic/168512748/)
-
-[汽车北站对面 大悦城附近 五号线和睦地铁口附近 花园岗小区 一室一厨卫 朝南带阳台1500包物业费 随时看房15949233335](https://www.douban.com/group/topic/168484563/)
-
-[拱墅区 城西银泰对面『芳满庭』60平一室一厅带阳台 黄金楼层 家具齐全](https://www.douban.com/group/topic/168289836/)
-
-[转租大悦城莫干山路大悦城旁 三宝郡庭一室整租 1000➕](https://www.douban.com/group/topic/168010240/)
-
-[天堂软件园中天mcc大悦城零距离，房东直租朝南精装一室一厅，燃气做饭，三宝郡庭特价3500，无中介费随时看房微信13067790717](https://www.douban.com/group/topic/168378260/)
-
-[学院北路（雍荣华庭）近地铁二号线三墩站，近龙湖天街，朝南主卧一室独立厨卫2200元！](https://www.douban.com/group/topic/168504078/)
-
-[沁雅花园，朝南独卫带阳台。黄龙，华星时代广场，丰潭路地铁附近](https://www.douban.com/group/topic/168526905/)
-
-[城西银泰附近 美都广场大悦城旁边精装一室 随时拎包入住。](https://www.douban.com/group/topic/168026666/)
-
-[出租西湖区房屋，耀江文萃苑朝南独卫。黄龙，枫华府第，学院路地铁附近](https://www.douban.com/group/topic/168525756/)
-
-[拱墅区大悦城旁边 三宝郡庭单身公寓整租一室](https://www.douban.com/group/topic/168041682/)
-
-[大悦城 莫干山路 都景公寓一室整租](https://www.douban.com/group/topic/168512285/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168466810/)
-
-[再次寻找合租女生室友，地点翠苑三区，四区](https://www.douban.com/group/topic/168487880/)
-
-[拱墅区 城西银泰对面 三坝地铁口『芳满庭』60平一室一厅带阳台 装修看图](https://www.douban.com/group/topic/168290529/)
-
-[黄龙万科中心对面  文三路254号
-超大整租一室一卫   45平方 单身公寓 全新佩琦 ，密码锁 直接拎包入住，微信18867800479](https://www.douban.com/group/topic/168311140/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室一厅价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/168300436/)
-
-[黄龙 精装漫果公寓出租 一室 首月特惠](https://www.douban.com/group/topic/168502563/)
-
-[天堂软件园中粮大悦城附近（三宝郡庭）一室一厅燃气厨房 拎包入住精装修](https://www.douban.com/group/topic/168498746/)
-
-[近黄龙商圈 支付宝大楼  黄龙万科中心对面  文三路254号
-超大整租一室一卫   45平方 单身公寓 ](https://www.douban.com/group/topic/168456105/)
-
-[二号线古翠路地铁口 嘉绿名苑朝南一室 拎包入住 绿码看房](https://www.douban.com/group/topic/166043154/)
-
-[拱墅区 大悦城对面 三宝郡庭 一室一厅独立厨卫管道煤气出租](https://www.douban.com/group/topic/168506181/)
-
-[【免1个月租金 西湖区近地铁2号线】【短租长租】](https://www.douban.com/group/topic/168434324/)
-
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168468154/)
-
-[房东直租，无需中介费，城西益乐路地铁二号线嘉绿青苑](https://www.douban.com/group/topic/168517846/)
-
-[嘉绿福苑，近古翠路地铁口，近世纪联华超市，一室一厅一厨一卫，精装修，拎包入住，每月租金4500元。联系电话18668180878，微信同号。](https://www.douban.com/group/topic/168477680/)
-
-[西湖区 教工路小区 一室一厅 带天然气厨房 刚空出 近黄龙体育场 德力西大厦 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/168277911/)
-
-[[非中介]滨江宝龙华盛达旁！精装整租一室2700！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
-
-[房东出租精装小区房文三西路古墩路紫荆花路](https://www.douban.com/group/topic/168484775/)
-
-[西湖区，黄龙万科旁边，天苑花园朝南独卫。黄龙，华星时代广场，古翠路地铁](https://www.douban.com/group/topic/168401936/)
-
-[2号线古翠路地铁口，丽都会零距离，和悦公寓，一室一厨一卫一阳台，有意的朋友可以扫码私信我。](https://www.douban.com/group/topic/168125889/)
-
-[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168419949/)
-
-[出租文三西路蘑菇街、浙商财富中心附近一室一卫](https://www.douban.com/group/topic/168495190/)
-
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/168464593/)
-
-[房东直租无中介费出租文一路益乐新村北区价1000元](https://www.douban.com/group/topic/168508082/)
-
-[学院路地铁口 一室一厅一卫一厨 1750每月 感兴趣看留言看视频 无中介费](https://www.douban.com/group/topic/169517687/)
-
-[大悦城旁，三宝郡庭，两套一室的房子，都是独立厨卫，联系方式13575487787（微信同号）价格2450一套每月，有诚意可以小刀](https://www.douban.com/group/topic/169522194/)
-
-[ 凯德湖墅 大悦城乐堤港附近，一室一厨一卫一阳台，燃气厨房可月付高档小区，看房提前15757145635微信同步](https://www.douban.com/group/topic/169132515/)
+[房东直租！西湖文化广场省人民医院 零距离 一室一厨一卫带阳台 精品公寓 2300家电齐全！可做饭 、无中介费](https://www.douban.com/group/topic/174882641/)
 
 [城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/169103735/)
 
-[庆隆苑 近大悦城 城西银泰特价2500 一室一厅一厨一卫 天然气厨房 房东直租 13003652669](https://www.douban.com/group/topic/169488246/)
+[三宝郡庭 大悦城0距离 天堂软件园边 精装一室一厅燃气厨房 特惠仅需3280月](https://www.douban.com/group/topic/175860458/)
 
-[中国铁建西湖国际城 紫西话语城](https://www.douban.com/group/topic/169450235/)
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175744809/)
 
-[房东自住的房子 单间仅限女生 到城西银泰走路10分钟](https://www.douban.com/group/topic/169477332/)
+[申花板块 城西银泰  2-5号地铁沿线 三墩 三坝 萍水街等 多套单间合租 整租一室等出租 月付季付 微15988820069](https://www.douban.com/group/topic/175575190/)
 
-[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168259062/)
+[翠苑三区精装一室一厅，家具齐全，附近交通便捷，地段好临近物美，看房联系电话15700183890，微信同号。](https://www.douban.com/group/topic/175817237/)
 
-[西湖区翠苑一区一室一厅地铁口附近整租，13285769830微信同号](https://www.douban.com/group/topic/168540748/)
+[房东直租，益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/175856401/)
 
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/169488319/)
+[转塘 云栖小镇附近 美院旁 精装单身公寓 特价1800包物业出租 视野好 环境好 钱塘one小区 拎包入住](https://www.douban.com/group/topic/166950207/)
 
-[求租单间](https://www.douban.com/group/topic/169511210/)
+[租客转租房租已经空置、随时可看、大悦城旁边庆隆苑一室一厅标准户型3100季度付。需要的抓紧。手慢无。47605814007微信同号](https://www.douban.com/group/topic/175861204/)
 
-[文一路古翠路地铁口附近，翠苑四区，一室一厅价格便宜，物美超市，铂澜大象城旁边](https://www.douban.com/group/topic/169479044/)
+[翠苑三区 一室一厅 黄金楼层 精装修 近文一路学院路 走路10分钟到学院路二号线站，联系电话18698577502](https://www.douban.com/group/topic/175855198/)
 
-[和睦苑 和睦地铁口 近大悦城 一室一厅LOFT 包物业2350元 18268159256](https://www.douban.com/group/topic/169466518/)
+[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
 
-[房东直租无中介费出租文一路益乐新村北区价1080](https://www.douban.com/group/topic/169515604/)
+[翠苑二区精装一室一厅房间朝南厅朝南 价格实惠看房方便 翠苑公交站 物美超市 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175803301/)
 
-[学院路地铁口 一室一厅一卫一厨1750每月](https://www.douban.com/group/topic/169517111/)
+[出租 三宝郡庭 精装一室一厅 近黄龙  大悦城隔壁  美都广场 西城时代 庆隆苑 ](https://www.douban.com/group/topic/175776022/)
 
-[大悦城三宝郡庭一室独卫独厨卫生间干湿分离只要2000出头一点独门独户](https://www.douban.com/group/topic/169386448/)
+[学院路地铁口附近，新德雅公寓精装一室出租，带管道燃气厨房。](https://www.douban.com/group/topic/174412137/)
 
-[和睦地铁口 近大悦城 通策和睦院一室整租公寓（电梯房）1800包物业明用水电。](https://www.douban.com/group/topic/169469947/)
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175791657/)
 
-[国际花园 黄龙复地 一室出租 微信～电话 13633009029](https://www.douban.com/group/topic/169498811/)
+[【房东直租】拱墅区庆隆苑 次卧独卫朝南单间](https://www.douban.com/group/topic/175118945/)
 
-[首月房租免200，押一付一，房东直租，益乐新村北六区，家电齐全](https://www.douban.com/group/topic/169486611/)
+[房东 整租 精装套房 干净整洁 家电齐全 蚂蚁金服 黄龙国际 支付宝 浙商财富中心  联合大厦附近](https://www.douban.com/group/topic/175717750/)
 
-[古翠路地铁口翠苑三区精装修一楼架空层一室一厅出租](https://www.douban.com/group/topic/169507525/)
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  网红聚集地 情侣居住首选
+包物业 微信1756828823](https://www.douban.com/group/topic/175813666/)
 
-[学院路地铁口 翠苑三区一室一厅原户型 近物美 同德医院 黄龙 支付宝](https://www.douban.com/group/topic/169450986/)
+[拱墅 大悦城旁 庆隆苑朝南带阳台一室一厅 房东直降](https://www.douban.com/group/topic/175745134/)
 
-[丰潭路地铁口 南都银座 世纪新城 精装修一室一厅一厨一卫  性价比超高 看房方便 随叫随到看房联系:18717816286 微信同号](https://www.douban.com/group/topic/168506814/)
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175774447/)
 
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/169103828/)
+[大悦城 三宝郡庭 一室一厅 40平 管道煤气 房东直租](https://www.douban.com/group/topic/175251199/)
 
-[蓝钻天成一室整租，3200包物业](https://www.douban.com/group/topic/169306677/)
+[翠苑三区 精装一室一厅 天堂软件园 物美 家具家电齐全 拎包入住 随时看房](https://www.douban.com/group/topic/175758028/)
 
-[大悦城三宝郡庭一室独卫独厨卫生间干湿分离只要2000出头一点独门独户](https://www.douban.com/group/topic/169386482/)
+[城西银泰 拱苑小区 一室一厨一卫 价格2100 图片现场实拍 近矩阵国际 黄龙万科 无中介费15906652641微信同步](https://www.douban.com/group/topic/175717178/)
 
-[国际花园 黄龙复地 一室出租 微信～电话 13633009029](https://www.douban.com/group/topic/169498727/)
+[[非中介]滨江宝龙华盛达旁！精装整租一室3000！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
 
-[西湖区 黄龙商圈国际花园单身公寓房东直租](https://www.douban.com/group/topic/169449553/)
+[城西益乐新村租房](https://www.douban.com/group/topic/175687462/)
 
-[通策和睦院，整租一室民用电，和睦院地铁口，大悦城，蓝钻天城，拎包入住](https://www.douban.com/group/topic/169496933/)
+[拱墅区 浙大城市学院 万科智谷 一室一卫 包物业3300每月](https://www.douban.com/group/topic/175749172/)
 
-[转租 大悦城 三宝郡庭一室一厅带阳台 3000包物业 18458891030](https://www.douban.com/group/topic/169372300/)
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  民用水电 独立厨卫
+丁女士15167180949，中介勿扰](https://www.douban.com/group/topic/175813289/)
 
-[文一路古翠路地铁口附近，翠苑四区，一室一厅价格便宜，物美超市，铂澜大象城旁边](https://www.douban.com/group/topic/169479161/)
+[【好房出租】今日嘉园性价比超高一室，文一路附近，翠园小区，学院路地铁站旁，有意者可以联系我：17530344351，【微信同号】](https://www.douban.com/group/topic/175632100/)
 
-[西溪锋尚2室loft 50多平方朝南电梯房直租文三西路上西溪湿地旁边交通便利环境好](https://www.douban.com/group/topic/169494949/)
+[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
 
-[【招女生】翠苑一区，朝南超大阳台，2号线学院路地铁5分钟，文一文二路学院路](https://www.douban.com/group/topic/169024251/)
+[自家房子出租文一路益乐新村一室一卫(独立卫生间)价950元拎包入住丰潭路二号地铁口步行十分钟。微信同步13958003193](https://www.douban.com/group/topic/175740349/)
 
-[和家园翰园精品单身公寓独厨独卫有赞蚂蚁金服黄龙支付宝附近2000](https://www.douban.com/group/topic/169496050/)
+[求租天堂软件园附近，女生合租或一室一卫，5月中旬可入住](https://www.douban.com/group/topic/175070970/)
 
-[西湖区翠苑一区一室一厅地铁口附近整租，13285769830微信同号](https://www.douban.com/group/topic/168541779/)
+[杭州拱墅区大悦城和睦地铁口附近三宝郡庭一室一卫出租2000看房联系A15858851429](https://www.douban.com/group/topic/175593432/)
 
-[庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2300随时看房，搞起](https://www.douban.com/group/topic/169490201/)
+[求租求租求租](https://www.douban.com/group/topic/175201407/)
 
-[地铁口五号线  和睦站 蓝钻天成 精装修公寓，民宿风，60平方   一室一厅](https://www.douban.com/group/topic/169320235/)
+[大悦城房源，三宝郡庭一室一厨一卫一餐厅一阳台，卫生间干湿分离价格2200，包网包物业出水电](https://www.douban.com/group/topic/175718486/)
 
-[蓝钻天城 精装一室民用电 和睦地铁口零距离 和睦院 大悦城 包物业](https://www.douban.com/group/topic/169473523/)
+[拱墅近万达，运河上街，瓜山新苑，押一付一房东直租，民用水电，精装公寓，品牌家电，网络齐全，配有公区健身房。](https://www.douban.com/group/topic/172492888/)
 
-[大悦城 汽车北站 花园岗 一室一厅 首次出租 性价比超高 只需2000](https://www.douban.com/group/topic/169321187/)
+[1600可月付合租，钱江世纪城，博地中心，2号线飞虹路地铁站，顺发美哉美城朝南带花园](https://www.douban.com/group/topic/173088150/)
 
-[和睦地铁口 近大悦城 通策和睦院一室整租公寓（电梯房）1800包物业明用水电。](https://www.douban.com/group/topic/169470239/)
+[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
 
-[【可短租/长租】房东直租真实房源，文二西路丰潭路口益乐新村南区，配套设施齐全，价格优惠，靠2号地铁丰潭站A出口零距离](https://www.douban.com/group/topic/169487878/)
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175755243/)
 
-[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/169104083/)
+[蓝钻天成 单身公寓小套一室 五号线和睦站地铁口 大悦城附近 2000出头秒杀  手慢无](https://www.douban.com/group/topic/175763698/)
 
-[和睦苑 和睦地铁口 近大悦城 一室一厅LOFT 包物业2350元 18268159256](https://www.douban.com/group/topic/169466734/)
+[应届毕业生0押金，1300可月付，2号线飞虹路地铁站，钱江世纪城，盈丰路，顺发美哉美城](https://www.douban.com/group/topic/175504557/)
 
-[黄龙万科中心旁华门世家一室一厅一厨一卫出租 3000学院路华门世家一室一厅一厨一卫出租](https://www.douban.com/group/topic/169509418/)
+[蓝钻天城小区，地铁和睦站，大悦城附近，拎包入住，包物业，一室一厅一卫，2350元微信18067911710](https://www.douban.com/group/topic/173848222/)
 
-[庆隆苑，朝南一室，单间，独立卫生间～走破，明天空出，随时看房只要1500，全小区，最便宜的单间独卫！搞起](https://www.douban.com/group/topic/169488477/)
+[房东直租 无中介费用  学院路地铁口 一室一厅一卫 公用天然气厨房 价格实在 看房方便 V 同步15868405052](https://www.douban.com/group/topic/175794653/)
 
-[古翠路地铁口翠苑三区精装修一楼架空层一室一厅出租](https://www.douban.com/group/topic/169507466/)
+[【可短租/长租】无中介费房东直租真实房源，文二西路丰潭路口益乐新村南区，靠2号地铁丰潭站A出口零距离，配套设施齐全拎包入住](https://www.douban.com/group/topic/175455451/)
 
-[二号线学院路地铁精装整租一室一厅拎包入住随时可以看房 价格4000出 位置好交通方便 上班出行都方便 小区安全 绿化好 安静高档 上档次](https://www.douban.com/group/topic/169245856/)
+[古荡新村东/ 精装一室一厅一厨一卫一阳台 白色调，房东去年全新装修/近黄龙 支付宝 丽都会 3000💰](https://www.douban.com/group/topic/175474998/)
 
-[【房屋出租】嘉绿福苑，精装一室一厅，古翠路地铁口附近，近世纪新城，嘉绿名苑，支付宝大楼，蚂蚁金服，看房联系：18712601440](https://www.douban.com/group/topic/169484085/)
+[蓝钻天成 一室一厅 网红公寓 45平 特价2000+ 和睦地铁口0距离 大悦城附近 汽车北站 ](https://www.douban.com/group/topic/175683174/)
 
-[学院路地铁口，翠苑一区，精装一室，看房电话13567120265，微信同号](https://www.douban.com/group/topic/169239187/)
+[地铁2号线中河北路，近浙一浙二邵逸夫，找室友](https://www.douban.com/group/topic/169845599/)
 
-[【房租出租】翠苑三区，精装一室一厅，近物美，天堂软件园，古翠路地铁，看房联系：18712601440](https://www.douban.com/group/topic/169482228/)
+[塘河北村豪华装修一室户转租 靠近大悦城乐堤港](https://www.douban.com/group/topic/175683543/)
 
-[一室一厅一厨一卫转租 拱墅区莫干山路杭州大悦城联合世纪新筑，求租二室一厅](https://www.douban.com/group/topic/169509341/)
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东47-1-403室，一室一厅一厨一卫一阳台，民用水电，只要3280元，随时看房，](https://www.douban.com/group/topic/175368211/)
 
-[和睦地铁口 近大悦城 通策和睦院一室整租公寓（电梯房）只此一套价格优惠1800包物业明用水电。](https://www.douban.com/group/topic/169499519/)
+[（转租）商住两用酒店式公寓临平地铁口银泰楼上吃喝玩乐行及其方便2600](https://www.douban.com/group/topic/169664186/)
 
-[古翠路 物美 天堂软件园 翠苑四区 整租一室一厅 近华兴时代 黄龙  微信电话同号：18458891030](https://www.douban.com/group/topic/169200749/)
+[押一付一 聚丰公寓 一室 黄龙中心 近花都 SOS 古越堂 π吧 德力西 支付宝 天际大厦](https://www.douban.com/group/topic/175366561/)
 
-[房东自住的房子 单间仅限女生 到城西银泰走路10分钟](https://www.douban.com/group/topic/169474897/)
+[丰谭地铁口300米 天堂软件园 嘉绿文苑 一室一厨一卫 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/175383395/)
 
-[和睦地铁口 大悦城附近 和睦院一室一厅loft整租 2400包物业费看房15949233335](https://www.douban.com/group/topic/169475138/)
+[翠苑一区 两室合租 隔壁是女孩 翠苑最便宜一室带独立厨卫 价格仅需2100 民用水电 学院路地铁口看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175637735/)
 
-[ 益乐路嘉绿文苑丽都会附近一室一厨一卫出租 文三路益乐路口 丽都会边上 嘉](https://www.douban.com/group/topic/169509482/)
+[天堂软件园，中天mcc，大悦城，城西银泰附近，一室一厅一卫一厨，朝南带飘窗，庆隆苑小区，只要2300，包物业，无中介费](https://www.douban.com/group/topic/175363597/)
 
-[拱墅区，大悦城三宝郡庭，精装修一室一厅，独立卫生间，天然气厨房，房间大，价格优惠](https://www.douban.com/group/topic/169438842/)
+[滨江，长岛之春朝南侧卧1500](https://www.douban.com/group/topic/175319417/)
 
-[龙门公寓 塘河大悦城 独立一室带管道煤气 价格2000+ 看房联系15103801065微信同号](https://www.douban.com/group/topic/169085732/)
+[2400/月一室一厨一卫带阳台 1.8大床拎包入住庆隆苑 大悦城天堂软件园步行上班](https://www.douban.com/group/topic/175616603/)
 
-[5号线和睦地铁口 ，蓝钻天成 朝南一室2650](https://www.douban.com/group/topic/169333483/)
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175773597/)
 
-[益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/168258556/)
+[华元天鹅堡一室一厅一厨一卫
+珀莱雅大厦 ， 浙大玉泉   黄龙  旁，
+环境位置好 ，  性价比高，
+家电齐全拎包入住](https://www.douban.com/group/topic/175198715/)
 
-[蓝钻天成，一室整租3100包物业](https://www.douban.com/group/topic/169084584/)
+[教工路地铁附近房子转租，中介勿扰](https://www.douban.com/group/topic/174783631/)
 
-[三宝郡庭 拱墅大悦城隔壁 朝南精装一室独卫 高楼层 采光佳 电梯房](https://www.douban.com/group/topic/169468159/)
+[出租 整租一室一厅 学院路地铁口 天然气民用水电 住宅电梯房](https://www.douban.com/group/topic/175603408/)
 
-[城西银泰 5号线地铁口萍水街站 一室一厨一卫一阳台 天然气厨房 整租 价格2800 近天堂软件园 无中介费管理15906652641微信同步](https://www.douban.com/group/topic/169050461/)
+[[非中介]滨江宝龙！精装整租一室2900！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
 
-[翠苑三区 干净清爽一室 朝南全明户型 便宜出租](https://www.douban.com/group/topic/169327999/)
+[杭州大悦城旁一室一厅新小区房东直租](https://www.douban.com/group/topic/174833097/)
 
-[【大悦城对面】三宝郡庭 一室一厅一厨一卫
-一阳台 朝南55平方米3100元未租可撩可小刀18391585606](https://www.douban.com/group/topic/169466898/)
+[转塘 云栖小镇 美院旁 精装一室公寓 一线江景房 特价1800包物业出租 家具家电齐全](https://www.douban.com/group/topic/166952916/)
 
-[嘉禾花苑房东出租小区房精装](https://www.douban.com/group/topic/169461062/)
+[【出租】蓝钻天城单身公寓一室 2200年付 民用水电 朝南 近城西银泰 大悦城 楼下就是五号线和睦站 汽车北站 复地壹中心 和睦院](https://www.douban.com/group/topic/175769115/)
 
-[西城纪 精装loft一室一厅 价格实惠 近天堂软件园 城西银泰 看房联系15103801065微信同号](https://www.douban.com/group/topic/169014460/)
+[押一付一 天苑花园 精装一室 近星光城 华星时代广场 支付宝 地铁口](https://www.douban.com/group/topic/175092631/)
 
-[文一路，翠苑三区整租一室一厅4楼2650出租照片真实，中介勿扰](https://www.douban.com/group/topic/169326311/)
+[文一路学院路，翠苑二区一室一厅，出门公交站，学院路地铁站，靠近物美大卖场，省立同德医院，价格美丽，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175758019/)
 
-[文三西路古墩路口嘉禾花苑精装一室一厨一卫出租房东直租](https://www.douban.com/group/topic/169229993/)
+[和家园12楼一室一厅一厨一卫直租蚂蚁金服支付宝有赞黄龙阿里巴巴附近](https://www.douban.com/group/topic/173003629/)
 
-[蓝钻天成5号线地铁和睦站 开发商精装修 一室整租 步行城西银泰 大悦城](https://www.douban.com/group/topic/169457190/)
+[个人房东直租大悦城正对面三宝郡庭朝南一室一厅一厨一卫天然气房子](https://www.douban.com/group/topic/175671283/)
 
-[【房东出租】滨江长河 白马湖小区 2室1厅整租 80方](https://www.douban.com/group/topic/168542796/)
+[好房直租！大悦城旁三宝郡庭房东配置豪华装修一室](https://www.douban.com/group/topic/175449433/)
 
-[中国铁建西湖国际城 紫西话语城](https://www.douban.com/group/topic/169450336/)
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+](https://www.douban.com/group/topic/175672773/)
 
-[房东有独立一室一厅翠苑三区，朝南阳光好](https://www.douban.com/group/topic/169452817/)
+[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
 
-[房东直租无中介费出租文一路益乐新村北区价1000元](https://www.douban.com/group/topic/168860016/)
+[杭州拱墅区大悦城隔壁大悦城一室一厅出租](https://www.douban.com/group/topic/175683475/)
 
-[嘉绿苑南区 短租 一室一厅一卫一厨 主卧可小刀](https://www.douban.com/group/topic/169144506/)
+[西湖区 文一路学院路附近 翠苑二区，一室一厅 价格3600可谈 看房电话15257237595同微信](https://www.douban.com/group/topic/175752029/)
 
-[文新地铁口 紫荆大厦 骆家庄西苑  星洲花园 华苑公寓 春天花园  新金都城市花园 骆家庄东苑](https://www.douban.com/group/topic/169444202/)
+[西湖区益乐新村北区，整租一室一卫，独门独户独卫](https://www.douban.com/group/topic/171372807/)
 
-[嘉绿苑 一室出租 微信～电话 13633009029](https://www.douban.com/group/topic/169448089/)
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里](https://www.douban.com/group/topic/174524970/)
 
-[和睦地铁口三百米，和睦院，整租一室loft朝南，蓝钻天城，中粮大悦城，包物业](https://www.douban.com/group/topic/169367193/)
+[【留下-西溪创立方】两人合住，上野双排！近汽车西站，有赞新办公楼，西溪印象城！＃人均月付880，包物业包宽带＃](https://www.douban.com/group/topic/175455681/)
 
-[教工路 华门自由21公寓 精装一室一厅 民用燃气 百脑汇 学院路地铁口 工商大学 ](https://www.douban.com/group/topic/169444967/)
+[古荡新村，一室一厅一卫，每月租金1800元](https://www.douban.com/group/topic/173581858/)
 
-[拱墅区 【三宝郡庭】大悦城 文一路物美 朝南带阳台一室一厅出租](https://www.douban.com/group/topic/146042270/)
+[古翠路地铁口，世纪新城一室，落地窗，电梯房，拎包入住，2800每月，看房电话135.6712.0265微信同号](https://www.douban.com/group/topic/174875195/)
 
-[非中介，下城区，一号线，武林，凤起路，西湖文化广场，黄龙，闸弄口火车东站，45方一居室，可短租](https://www.douban.com/group/topic/169482357/)
+[拱墅 大悦城旁 庆隆苑单间 独立厨卫 房东直降](https://www.douban.com/group/topic/175745345/)
 
-[天堂软件园大悦城附近 庆隆苑一室一厅管道燃气厨房出租 绿码看房](https://www.douban.com/group/topic/167470614/)
+[黄龙万科，德力西，快手，学院站，欧美中心，恒励大厦支付宝大厦，多套精装一室可选2500-3600/月15857113890](https://www.douban.com/group/topic/174830415/)
 
-[古翠路地铁口 单间独立厨卫  朝南 拎包住](https://www.douban.com/group/topic/168733384/)
+[房东直租出租西湖区益乐新村四楼朝南一室一卫大小都有价800到1300元](https://www.douban.com/group/topic/175434381/)
 
-[没有中介费 地铁口黄龙支付宝旁 中融城市花园朝南一室一厅 出租 家电齐全 领包入住](https://www.douban.com/group/topic/169444038/)
+[【求租】地铁2号线 学院路到金家渡沿线都可，近地铁站，一室一厅一厨一卫](https://www.douban.com/group/topic/175550652/)
 
-[个人房东（凯德湖墅）3000一室一厅一厨一卫一阳台，精装小户型照片实拍](https://www.douban.com/group/topic/169468191/)
+[2号线学院路地铁口 黄龙万科中心 德力西九莲新村 华门世家多套精装修一室独立厨卫 看房随时联系:18717816286 微信同号](https://www.douban.com/group/topic/172391584/)
 
-[嘉绿福苑 一室一厅 近古翠路地铁口 文二路 近古荡 黄龙支付宝大楼联系电话18698577502微信同号](https://www.douban.com/group/topic/169437883/)
+[城西银泰附近找一个合租的小姐姐 房东自住房出租豪华装修](https://www.douban.com/group/topic/169477332/)
 
-[西湖区华门自由21世纪，单身公寓，空间大，电梯房](https://www.douban.com/group/topic/169441841/)
+[杭州文三路黄龙天苑花园2400/月一室一厨一卫 华星时代 文都苑支付宝黄龙万科](https://www.douban.com/group/topic/175323222/)
 
-[房东直租大悦城对面_世纪新筑_朝南带飘窗一室一厅一厨一卫2800](https://www.douban.com/group/topic/160610241/)
+[西湖区 枫华府第小区 地铁二号线零距离 新出房源 独立厨卫 一室一厅一厨一卫](https://www.douban.com/group/topic/158654764/)
 
-[支付宝大楼 浙大玉泉校区 龙都大厦 单身公寓 一室一厨一卫朝南带阳台 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/169147210/)
+[【un公社-单身公寓】＃干湿分离 首月半价 押一付一＃近小和山大学城，浙工大对面，东信和创园，西溪印象城！](https://www.douban.com/group/topic/175759928/)
 
-[【房东直租】【二号线学苑路】枫华府第一室一厅朝南带阳台，4100/月，联系电话18504317331（微信同号）](https://www.douban.com/group/topic/169439615/)
+[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
 
-[三宝郡庭朝南一室 带阳台独立卫生间 1800](https://www.douban.com/group/topic/169326966/)
+[【西湖黄龙租房】世贸丽晶城精装一室一厅，电梯房，EAC，近黄龙，百脑汇，数源软件园，看房联系：18627856817（同微信】](https://www.douban.com/group/topic/159846512/)
 
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/169433098/)
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫](https://www.douban.com/group/topic/175531580/)
 
-[蓝钻天成一室整租，3200包物业](https://www.douban.com/group/topic/169306614/)
+[丰北一苑 两室一厅 60方户型 朝南户型，无任何中介费，飞虹路地铁口，wx联系：ppj19891020（加好友时请备注租房）	](https://www.douban.com/group/topic/174833729/)
 
-[中天Mcc，大悦城 城西银泰 天堂软件园边，三宝郡庭，朝南一室一厅一厨一卫，独立冰箱洗衣机，管道煤气厨房，随时看房，拎包入住，](https://www.douban.com/group/topic/155290421/)
+[拱墅和睦大悦城对面。都景公寓。一室一厅一卫一厨。房东自住。便宜出租，只要一千八。看房热线。19883131791](https://www.douban.com/group/topic/175309200/)
 
-[蓝钻天成一室整租，3200包物业](https://www.douban.com/group/topic/169306118/)
+[转塘 浦沿对面 美院旁 精装公寓 特价1800包物业出租 一线江景房 视野好 环境好 价格优惠 家具家电齐全 全新出租](https://www.douban.com/group/topic/166951770/)
 
-[拱墅区宸铭府，直租无中介，五号线拱宸桥东站，民用水电燃气，精装修公寓式。品牌家电，家具齐全，网络完备。](https://www.douban.com/group/topic/169436520/)
+[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
 
-[首月房租免200，押一付一，房东直租，益乐新村北六区](https://www.douban.com/group/topic/169486499/)
+[二号线古翠路地铁附近 世纪新城精装修一室](https://www.douban.com/group/topic/171369074/)
 
-[丰谭地铁口100米 天堂软件园 嘉绿文苑 朝南带阳台一室一厨一卫  房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/169146712/)
+[庆隆苑一室一厅  南北通透  房东直租，无中介费   电话：13588182991](https://www.douban.com/group/topic/175095748/)
 
-[2号线学院路地铁口 华门自由整租一室一厅 近大悦城 学军中学 高新大厦 燃气厨房 民用水电 2150包物业 18857381847微信同号](https://www.douban.com/group/topic/169140864/)
+[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
 
-[弥陀寺路宝石一路省府路二号线武林门地铁口零距离
-中医院皇后东魅黄龙浙大西溪一室一厅一厨一卫整租](https://www.douban.com/group/topic/169136807/)
+[春江彼岸三室出租，价格美丽4757好房不要错过，错过不在有，看房联系13047630883（微信同号）](https://www.douban.com/group/topic/175641013/)
 
-[个人出租湖墅北路（凯德湖墅）3000精装小户型，独立厨卫大阳台15268532755](https://www.douban.com/group/topic/169467701/)
+[地铁二号线三墩站 品牌公寓直租 不收中介费 押一付一 可以短租](https://www.douban.com/group/topic/174926097/)
 
-[【求租】沈塘桥/学院路附近整租一室](https://www.douban.com/group/topic/169401145/)
+[自家房地铁房无中介费一室一卫1000](https://www.douban.com/group/topic/171808887/)
 
-[武林门地铁站 西湖旁 友谊新村整租两室 近百脑汇 杭州大厦  民用水电 燃气厨房周边配套设施齐全](https://www.douban.com/group/topic/169134171/)
+[阿里园区旁边，房东直租，次卧室带独立卫生间，高端小区万科溪望(无中介费)](https://www.douban.com/group/topic/148911168/)
 
-[【大悦城】庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2300随时看房，～搞起18391585606](https://www.douban.com/group/topic/169463902/)
+[https://www.douban.com/doubanapp/dispatch?uri=/group/topic/175309789](https://www.douban.com/group/topic/175638673/)
 
-[转租 大悦城《天悦府》朝南一室，大飘窗，外独卫，公用管道煤气厨房，有阿姨定期打扫卫生，2000未租可撩18391585606](https://www.douban.com/group/topic/169462872/)
+[国际花园单身公寓，一室一卫厨房，看房提前预约[愉快]特价2000处理，支付宝大楼旁，黄龙商圈13175050712微信同号房东直租，无中介费](https://www.douban.com/group/topic/175661008/)
 
-[【西湖区留下小和山】浙工大对面整租一室，月付无中介费，近汇峰国际和创园研究所乐天城，公交直达支付宝、汽车西站](https://www.douban.com/group/topic/169329244/)
+[西湖黄龙国际花园一室一厨一卫家电齐全 2600/月拎包入住真实图片](https://www.douban.com/group/topic/175086492/)
 
-[有房出租](https://www.douban.com/group/topic/169255527/)
+[西城纪全明一室电梯房出租，房间朝南带大窗，可用空间宽阔，卫生间干湿分离，可做饭，近天堂软件园，随时可看房联系15867056245微信](https://www.douban.com/group/topic/175445083/)
 
-[德力西大厦 黄龙万科 中融城市花园 整租一室 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/169146482/)
+[中大银泰城城市学院精装一室2100三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
 
-[学院地铁口100米 九莲新村 独门独户 一室整租 价格实惠 房东直租 无中介费](https://www.douban.com/group/topic/166146159/)
+[大悦城旁边三宝郡庭一室一厨一卫一阳台一餐厅，特价2200。月付季付都可以。需要的抓紧。手慢无。17605814007微信同号](https://www.douban.com/group/topic/175829227/)
 
-[【急】提议无中介租房！！谢谢你的支持！！](https://www.douban.com/group/topic/169088082/)
+[城西银泰附近居多房源/三宝郡庭全新首次出租，轻奢风格，朝南一室一厅一厨一卫，天然气厨房找一个爱家的你，近大悦城交通便利别问直接私聊看视频](https://www.douban.com/group/topic/175815630/)
 
-[世茂广场-个人房源精装修一室一厅低价出租房租优惠800一个月](https://www.douban.com/group/topic/169381096/)
+[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
 
-[2号线学院路地铁口，黄龙万科中心，德力西大厦，支付宝大楼旁，华门世家，一室一厨一卫一阳台，喜欢的朋友扫码私信我](https://www.douban.com/group/topic/169400581/)
+[【好房出租】今日嘉园，一室一厅，近学院路站，近御西湖，翠苑，黄龙万科，价格实惠，可月份，看房联系：18712601440（微信同号）](https://www.douban.com/group/topic/175485891/)
 
-[ 大悦城旁三宝郡庭朝南一室带阳台精装 特价出租，楼层高通风好拎包入住](https://www.douban.com/group/topic/169232285/)
+[拱墅中大银泰城市学院旁精装一室2100三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
 
-[地铁学院路地铁口 华星时代广场 黄龙万科华门世家精装单身公寓一室一厨一卫](https://www.douban.com/group/topic/169363688/)
+[租客转租，2号线丰潭路古翠路双地铁口，南都银座，一室一厨（管煤）](https://www.douban.com/group/topic/175488203/)
 
-[蓝钻天成 五号线和睦地铁口 大悦城 和睦新村 整租一室 2450包物业 看房联系18685076441微信同号](https://www.douban.com/group/topic/169073261/)
+[文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/175775079/)
 
-[西湖区 古荡湾新村 一室一厅一卫](https://www.douban.com/group/topic/169037836/)
+[西城纪 标准一室一厅 河景房 近天堂软件园 靠近黄龙金茂悦 矩阵国际 联系电话18698577502微信同号	
+	](https://www.douban.com/group/topic/175597765/)
 
-[【房东直租】文三西路西口蘑菇街边上一室一厨一卫租金1600，除了房租你自己用的水电费，其它费用统统没有。](https://www.douban.com/group/topic/169469419/)
+[【好房出租】翠苑一区 标准一室一厅 近学院路地铁口 黄龙万科 行知小学 颐高数码 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/175401385/)
 
-[庆隆苑租房一室一厅一厨一卫 1900](https://www.douban.com/group/topic/169506894/)
+[标题：城西银泰附近，拱苑小区合租单间1300..1400..1700..1800公用燃气厨房   ](https://www.douban.com/group/topic/174513314/)
 
-[【房东直租】拱墅区庆隆苑单间出租独立卫生间厨房](https://www.douban.com/group/topic/168654068/)
+[黄龙万科中心 数码大厦 一室一厅随时看房](https://www.douban.com/group/topic/175031169/)
 
-[个人 大悦城、乐堤港、远洋国际中心（凯德湖墅）3000独立厨卫，大阳台，天然气，小户型](https://www.douban.com/group/topic/169468339/)
+[金成花园近丰潭路地铁口 一室一厅一厨一卫 朝南带阳台   民用水电 黄金楼层采光好 可随时入住 配置齐全 可押一付一](https://www.douban.com/group/topic/175771988/)
 
-[和睦地铁口 近大悦城 蓝钻天成综合体 和睦院整租一室独立厨卫 看房联系13456185772](https://www.douban.com/group/topic/169452982/)
+[大悦城 三宝郡庭 整租61方原户型 一室一厅 小区最低价](https://www.douban.com/group/topic/173159992/)
 
-[找室友啦~~~彭埠地铁站花园新宸府 精装两居，出租朝南次卧](https://www.douban.com/group/topic/169492036/)
+[定山西苑合租房精装修~~~价格从优](https://www.douban.com/group/topic/173175747/)
 
-[【景芳地铁站】单间 朝南 独卫 精装修](https://www.douban.com/group/topic/166217234/)
+[翠苑一区精装标准一室一厅出租，房间客厅朝南，采光好，黄金楼层，带燃气，近学院路地铁站，出行便利，随时可看房，联系15867056245微信](https://www.douban.com/group/topic/175367431/)
 
-[西湖区龙都大厦-近蚂蚁金服-一室一卫独用-朝南带阳台-2800每月(已含网/水费)-本人转租](https://www.douban.com/group/topic/168554410/)
+[城西银泰附近 大悦城旁 近地铁五号线 西城时代 朝南55方一室一厅一厨一卫 民用水电 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166701290/)
 
-[出租:黄龙体育馆边上，电梯房一室一卫带大阳台诚心要联系15857113890](https://www.douban.com/group/topic/169170357/)
+[ 庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2300随时看房
+](https://www.douban.com/group/topic/173077780/)
 
-[杭州公馆 一室一厅价格4000就租 近学院路 文一路 联系电话18698577502微信同号](https://www.douban.com/group/topic/169328622/)
+[二号线学院路地铁口一室整租价格1200，独门独户独卫装修干净家电齐全，拎包入住随时看房，步行100-300米就是地铁口](https://www.douban.com/group/topic/175841746/)
 
-[出租:西湖区黄龙体育馆，嘉华国际商务中心，欧美中心，聚龙大厦，标准一室一厅一厨一卫，15857113890/4800/月](https://www.douban.com/group/topic/169175428/)
+[翠苑一区一室一厅1050精装修拎包入住15906669509](https://www.douban.com/group/topic/175362107/)
 
-[拱墅区大悦城城西银泰附近一室带大阳台原户型卫生间价格2000出头呢](https://www.douban.com/group/topic/169327527/)
+[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
 
-[城西 古荡西区 标准一室一厅出租 近丰潭路地铁口 可做小两房 蚂蚁金服 丽都会旁](https://www.douban.com/group/topic/169357994/)
+[杭州下沙租房 传媒学院附近 元成恒盛公寓 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1300](https://www.douban.com/group/topic/174380048/)
 
-[转租！！2号线三墩站附近都市水乡水秀苑转租](https://www.douban.com/group/topic/169485310/)
+[杭州拱墅区大悦城附近庆隆苑一室一厅租房](https://www.douban.com/group/topic/175679893/)
 
-[[非中介]滨江宝龙！精装整租一室3200！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943429/)
+[【转租 可短租4个月】拱墅区凯德湖墅精装套间，无中介费！性价比超高！](https://www.douban.com/group/topic/174937477/)
 
-[大悦城旁三宝庆隆苑一室一厅价格美丽黄龙起步价2000多点需要联系！](https://www.douban.com/group/topic/168811337/)
+[整租！！二号线地铁口 翠苑四区整租一室一厅一厨一卫，民水民电](https://www.douban.com/group/topic/175779001/)
 
-[房东有独立一室一厅翠苑三区房子 朝南 独立卫生间](https://www.douban.com/group/topic/169453020/)
+[教工路上华门自由公寓电梯房，一室一厅一卫，大卧室带飘窗采光好，大客厅活动空间大，燃气厨房做饭，附近工商大学，电子科技大学，大悦城购物中心](https://www.douban.com/group/topic/174122118/)
 
-[大悦城边庆隆苑一室管道煤气独立卫生间开放式厨房](https://www.douban.com/group/topic/169323511/)
+[天堂软件园旁边，庆隆苑精装一室出租。独立厨卫。特温馨](https://www.douban.com/group/topic/172115289/)
 
-[大悦城 天堂软件园 黄龙打车起步价 一室一厅一厨一卫 管道燃气](https://www.douban.com/group/topic/153056051/)
+[中兴文都苑 朝南 精装一室 独卫 支付宝 黄龙万科 华星时代 近学院路地铁口 华门世家](https://www.douban.com/group/topic/175618732/)
 
-[黄龙体育馆 德力西大厦 聚丰公寓 朝南一室一厨一卫 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/169145480/)
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东一室一厅，民用水电，只要3280元，随时看房，有意联17600166524微信同号](https://www.douban.com/group/topic/175383587/)
 
-[丰潭地铁口 嘉绿文苑 朝南一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/166145726/)
+[杭州天河西苑，2室1厅1卫1厨，整租](https://www.douban.com/group/topic/175313181/)
 
-[拱墅区，大悦城旁边三宝郡庭精装修一室一厅独立厨卫，天然气厨房，房子精品价格优惠全区最低](https://www.douban.com/group/topic/169325017/)
+[ 【好房出租】今日嘉园，一室一厅，交通便利，家具齐全，价格实惠。欢迎来电咨询17356518293（VX同号）](https://www.douban.com/group/topic/175311723/)
 
-[大悦城《天悦府》朝南一室，大飘窗，外独卫，公用管道煤气厨房 2000无中介费随时看房，拎包入住微信电话18158105920](https://www.douban.com/group/topic/169456520/)
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175747753/)
 
-[【自家房子】拱墅区 | 汽车北站对面 |花园岗公寓，一室朝南独立厨卫带阳台，包物业费，家电齐全，拎包入住](https://www.douban.com/group/topic/168550091/)
+[留下肯德基背后留下古街安乐新村单间直租公交直达有赞蚂蚁金服西溪印象城](https://www.douban.com/group/topic/175505175/)
 
-[2号线三墩站小卧室转租](https://www.douban.com/group/topic/169485213/)
+[ 学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 ](https://www.douban.com/group/topic/175775009/)
 
-[求租丰潭路或文新地铁站附近一室整租](https://www.douban.com/group/topic/168627308/)
+[金色蓝庭整租一室一厅一厨一卫原户型 2000+ 天堂软件园上班的小伙伴可以了解下这套房子，上班非常方便。15267118224](https://www.douban.com/group/topic/175746342/)
 
-[找女生合租两室一厅，在翠苑三区，四区](https://www.douban.com/group/topic/169317022/)
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175302820/)
 
-[庆隆苑，朝南一室，单间，独立卫生间～走破，明天空出，随时看房只要1500，全小区，最便宜的单间独卫！搞起联系电话17882490140](https://www.douban.com/group/topic/169483623/)
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175745342/)
 
-[翠苑逸景湾 近天堂软件园 文一路物美 汇合城 中天Mcc 精装一室独立厨卫 ](https://www.douban.com/group/topic/168736096/)
+[博奥路【地铁口】【房东直租】 找室友1600/月【限女生】](https://www.douban.com/group/topic/173375492/)
 
-[【江干】【景芳】地铁附近单间900！！](https://www.douban.com/group/topic/166211057/)
+[三宝郡庭，整租一室小阳台，独立厨卫，民用水电，大悦城200米，和睦地铁口，拎包入住，随时看房，最低价1900](https://www.douban.com/group/topic/171309010/)
 
-[翠苑四区 整租一室一厅带阳台 中间楼层 随时看房联系17757176179](https://www.douban.com/group/topic/168735000/)
+[翠苑二区一室一厅一厨一卫整租 3600/月 付款方式灵活，季付 半年付 年付 可优惠。
+电话/微信：15906655561](https://www.douban.com/group/topic/175701326/)
 
-[房东直租（凯德湖墅）3000一室一厅一厨一卫一阳台，精装小户型15268532755](https://www.douban.com/group/topic/169434247/)
+[文一路教工路今日嘉园，精装修一室一厅，临近学院路站，出门公交站，天然气做饭，价格4000+，看房联系18458872590，同v](https://www.douban.com/group/topic/175599170/)
 
-[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/168732371/)
+[【求租+找室友】求合租近江地铁站附近的两室一厅](https://www.douban.com/group/topic/174911349/)
 
-[嘉禾花苑房东整租1室1卫1厨，2000元/月，3楼（蚂蚁金服旁，近丰潭路地铁站）。](https://www.douban.com/group/topic/168718736/)
+[出租:黄龙体育馆边上零距离朝南带阳台一室一厨一卫，看房联系15857113890](https://www.douban.com/group/topic/175187378/)
 
-[商住两用酒店式公寓临平地铁口银泰楼上吃喝玩乐行及其方便](https://www.douban.com/group/topic/169485920/)
-
-[古翠路丰潭路地铁附近，世纪新城，整租一室一厨一卫](https://www.douban.com/group/topic/169202705/)
-
-[庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2100随时看房，拎包入住看房电话微信18158105920](https://www.douban.com/group/topic/169446958/)
-
-[大悦城附近精装一室特价出租](https://www.douban.com/group/topic/168702920/)
-
-[蒋村花园广安苑 近首座西溪湿地 整套两室一厅转租或合租](https://www.douban.com/group/topic/169210190/)
-
-[[非中介]滨江宝龙华盛达旁！精装整租一室3000！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168479522/)
-
-[丰潭路地铁口 南都银座 世纪新城 精装修一室一厅一厨一卫 性价比超高 看房方便 随叫随到看房联系:18717816286 微信同号](https://www.douban.com/group/topic/168559041/)
-
-[天堂软件园，翠苑三区中等装修整租一室一厅，物美大超市旁](https://www.douban.com/group/topic/168933703/)
-
-[二号线学院路🚇地铁口 西湖区枫华府第 一室一厨一卫 2580¥/月  民用水电 房东直租](https://www.douban.com/group/topic/169496943/)
-
-[2号线古翠路地铁口500米，嘉绿青苑，一室一厅一厨（管煤）一卫，喜欢的朋友可以扫码私信我](https://www.douban.com/group/topic/169115269/)
-
-[【有房出租】滨江金色蓝庭，精装一室一厅，古翠路地铁附近，楼层好，采光好，近翠苑，天堂软件园，有意者可联系18712601440	
-](https://www.douban.com/group/topic/169238827/)
-
-[出租西湖区一室一厅 59平电梯房 精装修拎包入住家电齐全 近黄龙 看房联系18868448262](https://www.douban.com/group/topic/169238254/)
-
-[庆隆苑，朝南一室，外独卫 随时看房只要1500，无中介费拎包入住看房电话微信18158105902](https://www.douban.com/group/topic/169402972/)
-
-[房东有房出租，西湖区文一西路益乐新村北区一室一卫单间](https://www.douban.com/group/topic/168905988/)
-
-[支持月付 学院路地铁口 梧桐公寓 标准一室一厅 绿城物业 微信13698433497](https://www.douban.com/group/topic/169231597/)
-
-[欧美中心EAC SOS 黄龙体育馆 国际花园 一室一厨一卫带阳台 房东直租 无中介费](https://www.douban.com/group/topic/158025899/)
-
-[杭州公馆一室一厨一卫转租](https://www.douban.com/group/topic/169495877/)
-
-[学院路地铁口500米梧桐公寓一室一厅煤气管道厨房出租](https://www.douban.com/group/topic/169129612/)
-
-[大悦城  庆隆苑  大户型朝南带阳台，精装一室   实图实价  可月付可短租   价格2000+  看房滴滴15057521259](https://www.douban.com/group/topic/168934228/)
-
-[【留下·小和山】整租一室，浙工大对面，月付无中介费，公交直达汽车西站支付宝蚂蚁金服](https://www.douban.com/group/topic/169332269/)
-
-[古翠路 物美 天堂软件园 翠苑四区 整租一室一厅 近华兴时代 黄龙](https://www.douban.com/group/topic/169199950/)
-
-[文三西路蘑菇街边上一室一厨一卫租金1600，无物业费，无中介费，疫情期间可以短租。](https://www.douban.com/group/topic/169467380/)
-
-[三宝郡庭 精装一室 可做两室 近大悦城 美都广场 包物业 年付3050 联系电话18106515369微信同号](https://www.douban.com/group/topic/168817011/)
-
-[浙商财富中心蘑菇街旁嘉禾花苑精装单身公寓一室一厨一卫出租](https://www.douban.com/group/topic/153618463/)
-
-[西湖区出租：一室整租，押一付一2100，近西溪湿地，蚂蚁金服，浙商财富中心，汽车西站，天堂软件园，阿里巴巴西溪园区，联合大厦，莲花商务中心](https://www.douban.com/group/topic/168933061/)
-
-[转塘美院 浙音附近 篁外出租两室一厅 一室一厅和独立厨卫主卧 个人出租](https://www.douban.com/group/topic/169214271/)
-
-[蚂蚁金服 浙商财富中心附近 山水人家带阳台次卧和朝南独卫主卧 房东出租](https://www.douban.com/group/topic/169213667/)
-
-[【合租】学院路地铁口 翠苑一区 两室一厅 目前次卧住女孩子，主卧招女室友](https://www.douban.com/group/topic/168706714/)
-
-[拱墅区花园岗公寓，一室朝南独立厨卫带阳台，包物业费](https://www.douban.com/group/topic/168544516/)
-
-[整租丨西湖区 黄龙 支付宝旁边 新出精装一室出租 朝南55方 2800/月](https://www.douban.com/group/topic/166545927/)
-
-[【上城】【婺江站】望江地铁房单间独卫精装修](https://www.douban.com/group/topic/166209514/)
-
-[房东直租文三西路紫荆花路口嘉禾花苑精装朝南一室一厨一卫家电齐全](https://www.douban.com/group/topic/168841345/)
-
-[龙门公寓 一室一厅 价格2600就租 带管道煤气 近塘河北村 大悦城 靠近教工路余杭塘路，看房方便18698577502 微信同号 	
-	](https://www.douban.com/group/topic/169086620/)
-
-[【西湖区·留下·小和山】UN公社朝南一室整租，💰1400，月付无中介费，近浙工大和创园研究所，公交直达汽车西站黄龙支付宝](https://www.douban.com/group/topic/169333305/)
-
-[大悦城三宝郡庭一室燃气厨房独立卫生间价格只要2600](https://www.douban.com/group/topic/169067135/)
-
-[学院地铁站 中天mcc 天堂软件园 近黄龙 发展今日嘉园 整租一室一厨一卫 房东直租 无中介费](https://www.douban.com/group/topic/158025814/)
-
-[首月房租免200，房东直租，押一付一，家电齐全](https://www.douban.com/group/topic/169384075/)
-
-[西城纪 精装朝南一室 近城西银泰 矩阵国际 天堂软件园 包物业 年付2700 联系电话18106515369微信同号](https://www.douban.com/group/topic/168703937/)
-
-[【大悦城对面】莫干山路教工路口（吉兴公寓）一室一厅一卫一厨，厨房管道煤气做饭2500未租可撩18391585606](https://www.douban.com/group/topic/169447702/)
-
-[房东直租文一路益乐新村一室一卫出租](https://www.douban.com/group/topic/169035008/)
-
-[蚂蚁金服，蘑菇街对面单身公寓精装拎包入住](https://www.douban.com/group/topic/168609957/)
-
-[西溪湿地一室一厅一卫万科泊寓 近蘑菇街支付宝大厦转租](https://www.douban.com/group/topic/169013610/)
-
-[浙商财富中心旁嘉禾花苑精装朝南单身公寓一室一厨一卫，家电设施齐全](https://www.douban.com/group/topic/135607607/)
-
-[拱墅区，大悦城附近三宝郡庭，一室一厅独立厨卫，天然气厨房价格实惠需要的滴滴](https://www.douban.com/group/topic/168767984/)
-
-[凯德湖墅 大悦城乐堤港附近，一室一厨一卫一阳台，燃气厨房可月付高档小区，看房提前15757145635微信同步](https://www.douban.com/group/topic/169132422/)
-
-[房东直租古墩路浙商财富中心旁嘉禾花苑一室一厨一卫，家电设施齐全](https://www.douban.com/group/topic/169231182/)
-
-[大悦城旁精装一房特价出租，小区环境好，停车方便，交通便利。](https://www.douban.com/group/topic/168702879/)
-
-[【景芳地铁口】【钱江】【朝南主卧】可以做饭拎包入住咯~](https://www.douban.com/group/topic/166206450/)
-
-[古墩路浙商财富中心蚂蚁金服附近有单身公寓拎包入住](https://www.douban.com/group/topic/169408369/)
-
-[拱墅区 乐堤港 大悦城旁 一室一厅带阳台 家具齐全 拎包入住 房东直租](https://www.douban.com/group/topic/168761887/)
-
-[（无中介费）地铁1号线闸弄口站，近黄龙武林西湖火车东站，独门独户独卫带厨房，可做饭，家具家电齐全，拎包入住](https://www.douban.com/group/topic/168975197/)
-
-[大悦城附近（吉兴公寓）一室一厨一卫一阳台。只要2700，无中介费租客转租看房微信联系18158105920](https://www.douban.com/group/topic/169129909/)
-
-[房东出租文三西路古墩路紫荆花路精装小区房](https://www.douban.com/group/topic/169011165/)
-
-[大悦城，城西银泰 三宝郡庭独门40方一室独立厨卫带管煤价格只要2000+ 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/169347121/)
-
-[大悦城 庆隆苑 一室独立厨卫朝南带阳台 只需2100/🈷️ 钥匙在手](https://www.douban.com/group/topic/169363210/)
-
-[丰潭路地铁口，千元一室整租精装公寓](https://www.douban.com/group/topic/168909961/)
-
-[首月房租免200，房东直租，走过路过不要错过](https://www.douban.com/group/topic/168896541/)
-
-[大悦城旁精装一室朝南带阳台，独立厨卫，首次出租，可直接拎包入住](https://www.douban.com/group/topic/168969862/)
-
-[（大悦城）庆隆苑，朝南一室，单间，独立卫生间，明天空出，随时看房只要1500，全小区，最便宜的单间独卫 搞起18391585606](https://www.douban.com/group/topic/169446255/)
-
-[房东低价直租 汽车西站 黄龙体育中心 蚂蚁金服边 单身公寓独卫独阳台 拎包入住](https://www.douban.com/group/topic/169325967/)
-
-[黄龙万科，EAC欧美中心，嘉华国际，世贸丽晶城，九莲新村，一室一厅，独立厨卫，空置 随时入住，价格2200/月。☎️13588787237](https://www.douban.com/group/topic/155711598/)
-
-[庆隆苑 大悦城 五号线萍水街附近 一室一厅管道煤气 卫生间干湿分离](https://www.douban.com/group/topic/168434019/)
-
-[翠苑二区一室一厅整租，家具齐全拎包入住，临近学院路地铁口看房联系15700183890，微信同号。](https://www.douban.com/group/topic/168942557/)
+[杭州下沙租房 传媒学院附近 东城大厦 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1350](https://www.douban.com/group/topic/174643565/)
 
 [大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168244046/)
 
-[庆隆苑大悦城 五号线萍水街附近 一室一厅带管道煤气 卫生间干湿分离](https://www.douban.com/group/topic/168426325/)
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/175444537/)
 
-[学院地铁口 黄龙万科中心 明珠公寓 一室一厨一卫，朝南落地窗 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/168986976/)
+[房东降价直租：地铁二号院学院路站翠苑附近中豪晴园独立一室一厅一卫1400元出租，无中介费，独立一户。](https://www.douban.com/group/topic/171440038/)
 
-[庆丰公寓，一室独卫。黄龙，支付宝，华星时代广场，蚂蚁金服边](https://www.douban.com/group/topic/169443165/)
+[【个人急转】月付3000翡翠城翡翠湾均朝南的两室一厅90平大house！近阿里巴巴淘宝城、西溪湿地、华立科技园](https://www.douban.com/group/topic/173710993/)
 
-[支付宝大厦附近 中融城市花园 一室一厅一厨一卫 房东直租](https://www.douban.com/group/topic/169147474/)
+[丰潭路地铁口，丽都会旁边，嘉绿文苑](https://www.douban.com/group/topic/175487049/)
 
-[花园岗公寓，一室朝南独立厨卫带阳台，包物业费，家电齐全，拎包入住](https://www.douban.com/group/topic/168549082/)
+[黄龙万科中心 中融城市花园 整租一室一卫（独立厨卫）](https://www.douban.com/group/topic/175372525/)
 
-[黄龙起步价 大悦城附近 庆隆苑一室一厅一厨一卫燃气大厨房特价出租2500](https://www.douban.com/group/topic/168786474/)
+[超低价！拱墅区庆隆苑价格只要2400一室一厅干湿分离 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/175051660/)
 
-[大悦城附近三宝郡庭  一室一厅 燃气厨房 全明户型  今明两天 特价出租  只要2500 小区最低价](https://www.douban.com/group/topic/168786202/)
+[大悦城零距离黄龙打车起步价三宝郡庭朝南一室一厅管道煤气](https://www.douban.com/group/topic/175744234/)
 
-[翠苑二区一室一厅朝南，近学院路地铁口，物美，联系微信13279203971.](https://www.douban.com/group/topic/168881677/)
+[地铁五号线和睦站大悦城购物中心旁边 三宝郡庭一室一厅一厨一卫加管道天然气 实拍照片](https://www.douban.com/group/topic/175526163/)
 
-[房东直租 庆隆苑精装一室出租](https://www.douban.com/group/topic/165954091/)
+[【好房出租】翠苑三区，精装一室，近2号线地铁古翠路站，物美，同德医院，天堂软件园，价格实惠，可月付，看房联系：18712601440（同V）](https://www.douban.com/group/topic/175400364/)
 
-[合租单间 ，学院华庭（融信合租公馆），月租1500+，一室一厅，房间朝南，看房联系18668180878,（微信同号）](https://www.douban.com/group/topic/168884158/)
+[【找房】西湖区，近支付宝Z空间 整租一室一厅 预算2000-4000](https://www.douban.com/group/topic/175515403/)
 
-[翠苑二区 一室一厅 2000+ 临近地铁 看房联系18668180878（微信同号）](https://www.douban.com/group/topic/168879668/)
+[房东直租文三西路紫荆花路口嘉禾花苑精装一室一厨一卫家电齐全](https://www.douban.com/group/topic/168843338/)
 
-[求租阿里巴巴周边一室公寓或合租，不要回迁房
+[整租：黄龙，阿里中心，蚂蚁金服，浙江大学紫金港，天目山路，标准一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175691923/)
 
-个人对卫生要求高，所以希望卫生间干净。合租什么的看房子情况，最好是个人的一室，转租的都可以](https://www.douban.com/group/topic/168026176/)
+[大悦城周边小区 原户型一室一厅一卫  房子干净清爽  只要2800 近乐提港  远洋国际  和睦地铁口联系15057521259](https://www.douban.com/group/topic/175799922/)
 
-[大悦城旁庆隆苑精装一室开放式厨房带管煤特价出租，中间楼层，通风好采光好拎包入住](https://www.douban.com/group/topic/169324156/)
+[租客转租 南都银座 无中介费](https://www.douban.com/group/topic/175487516/)
+
+[押一付一  出租 天苑花园 一室一厅  近星光城 华星时代广场 支付宝 黄龙万科  古翠地铁口](https://www.douban.com/group/topic/175372924/)
+
+[莫干山路大悦城附近美都广场一室精装1800，家具家电齐全，原户型！](https://www.douban.com/group/topic/175820858/)
+
+[[留下]精装单身公寓一室一厅一厨一卫可月付近汇峰国际公交直达黄龙](https://www.douban.com/group/topic/175516710/)
+
+[2号地铁线古翠路步行500米 浙江省立同德医院 翠苑四区 一室一厅一厨一卫 整租](https://www.douban.com/group/topic/175350258/)
+
+[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065247/)
+
+[天目山路支付宝隔壁中融城市花园一室一卫2200/月 月付 德力西浙大汇丰现代国际](https://www.douban.com/group/topic/175358735/)
+
+[拱墅区 城市学院 中国铁建国际城 万科智谷 精装一室1500](https://www.douban.com/group/topic/175340951/)
+
+[枫华府第 一室一厅出租 微信～电话 13633009029](https://www.douban.com/group/topic/175455405/)
+
+[『西湖区留下小和山』💰700-1150单间带独卫，月付无中介费，近工业大学和创园研究所汇峰有赞黄龙](https://www.douban.com/group/topic/175279183/)
+
+[房东直租古墩路浙商财富中心蘑菇街对面嘉禾花苑精装一室一厨一卫家电设施齐全](https://www.douban.com/group/topic/169613110/)
+
+[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168420697/)
+
+[大悦城庆隆苑一室朝南有阳台、独立厨卫、干湿分离卫生间、随时看房。17605814007微信同号](https://www.douban.com/group/topic/175794265/)
+
+[之江公寓次卧押一付一](https://www.douban.com/group/topic/136026135/)
+
+[【房东直租】城西嘉禾花苑精装修套房急租可做饭](https://www.douban.com/group/topic/168970405/)
+
+[嘉禾花苑房东出租精装小区房](https://www.douban.com/group/topic/173428760/)
+
+[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
+
+[拱墅区和睦大悦城对面都景公寓。一室一厅一厨一卫，房东自住的。现在出租。价格实惠，只要1800， 给远在他乡的你一个温馨的小家](https://www.douban.com/group/topic/175307762/)
+
+[临近黄龙万科，，文三路上，古荡新村东4，一室一厅一厨一卫一阳台，民用水电，只要3280元，好房不等人，17605814007微信同号](https://www.douban.com/group/topic/175788964/)
+
+[天堂软件园 中天MCC 翠苑逸景湾 精装主卧 直租月付](https://www.douban.com/group/topic/175339540/)
+
+[大悦城旁，三宝郡庭。一室一厅一厨一卫一阳台  价格2399。房东直租押一付一。实拍。](https://www.douban.com/group/topic/175284331/)
+
+[庆隆苑朝南带阳台一室一厅 超级大阳台 卫生间干湿分离 客厅都可做一个房间](https://www.douban.com/group/topic/174207224/)
+
+[大悦城，天堂软件园附近，庆隆苑小区，一室一厅一厨一卫，只要2320元，包物业。17605814007微信同号](https://www.douban.com/group/topic/175788708/)
+
+[2号线丰潭路古翠路双地铁口，西湖国际科技大厦旁，南都银座，一室一厨（管煤）一卫，超大约40m，喜欢的朋友扫码私信我](https://www.douban.com/group/topic/174306682/)
+
+[拱宸桥东，浙江树人大学，浙大城市学院《蔡马人家》精装一室一厅一厨一卫，家电齐全](https://www.douban.com/group/topic/175667879/)
+
+[（个人转租免中介费）临江花园单间独卫大阳台转租](https://www.douban.com/group/topic/173765626/)
+
+[庆隆苑合租一室出租，电梯房，近天堂软件园，地铁5号线2号线，价格实惠，一千出头一点就可租，可以长租，可做饭，看房联系15867056245微](https://www.douban.com/group/topic/174722244/)
+
+[大悦城旁边 美都广场 精装一室一厅 价格1610 价格便宜 随时看房 秒租房 需要看房联系17179799497](https://www.douban.com/group/topic/175822174/)
+
+[蚂蚁金服 浙商财富中心附近 山水人家带阳台卧室和带飘窗次卧 个人出租](https://www.douban.com/group/topic/172782315/)
+
+[西湖区，学院路地铁口翠苑二区一室一厅一厨一卫整租原户型的45平方。家具家电配齐的直租没有中介费诚心租房联系我18768958293](https://www.douban.com/group/topic/174417163/)
+
+[翠苑四区整租一室一厅一厨一卫，民水民电，无中介](https://www.douban.com/group/topic/175613159/)
+
+[城市学院树人大学边精品公寓押一付一独门独户民用水电价格便宜](https://www.douban.com/group/topic/152315298/)
+
+[个人房地铁房一室一卫1000](https://www.douban.com/group/topic/171763768/)
+
+[2号线 学院路 新德雅公寓 独立厨卫 房东急租 免中介月付](https://www.douban.com/group/topic/174944351/)
+
+[拱墅区庆隆苑次卧 独卫朝南单间 房东直租](https://www.douban.com/group/topic/174915853/)
+
+[靠近大悦城，美都一室一厅整套出租，仅需1510包物业，不要中介费](https://www.douban.com/group/topic/175817374/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园【东方福邸】朝南一室一厅，价格美丽](https://www.douban.com/group/topic/175203911/)
+
+[杭州拱墅区庆隆苑高层一室一厅转租](https://www.douban.com/group/topic/175678479/)
+
+[大悦城附近，美都广场便宜一室单身公寓，租金1600包物业，实图实价，速来秒杀。](https://www.douban.com/group/topic/175818209/)
+
+[5号线和睦站地铁口 整租一室一厅公寓 近城西银泰与大悦城 看房联系13456185772](https://www.douban.com/group/topic/175598677/)
+
+[【房屋出租】翠苑一区学院路地铁口精装一室一厅，近黄龙万科，天堂软件园，家电齐全，连包入住，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174429061/)
+
+[求2号线学院路到建国北路附近或5号线西文街到打铁关地铁口附近一室整租房子](https://www.douban.com/group/topic/175050142/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东，一室一厅一厨一卫一阳台，民用水电，随时看房，推荐全佣，好房不等人，有没有要换房子的朋友啊](https://www.douban.com/group/topic/175370523/)
+
+[整租：五号线，二号线，三坝，萍水街，天堂软件园，中天mcc附近，【西城纪】，精装修loft一室一厅，租金：2500/月。☀️](https://www.douban.com/group/topic/175687661/)
+
+[文一路教工路今日嘉园，精装修一室一厅，近地铁，近黄龙，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175299835/)
+
+[学院路地铁站，翠苑一区，朝南主卧，寻找可爱的小伙伴合租啦](https://www.douban.com/group/topic/174968959/)
+
+[紧急转租近2号线古翠路地铁口、支付宝大楼的龙都大厦大一室，朝南大阳台，可做饭](https://www.douban.com/group/topic/174283927/)
+
+[耀江文萃苑 一室一厅 独卫 管道煤气厨房 学院路地铁口 黄龙万科 枫华府第](https://www.douban.com/group/topic/175164851/)
+
+[租客转租 三宝郡庭 一室一厅 带个小餐厅 2700  位置莫干山路上 大悦城旁边 随时看房 13470429965](https://www.douban.com/group/topic/175304802/)
+
+[近黄龙万科文一物美学院春晓45平一室一厅带阳台](https://www.douban.com/group/topic/175620368/)
+
+[求租 西湖区翠苑或附近的房子](https://www.douban.com/group/topic/158345082/)
+
+[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
+
+[（房东直租：主卧带独卫、次卧3）官河锦庭，滨江西兴地铁口500M](https://www.douban.com/group/topic/174252458/)
+
+[城西银泰附近 大悦城旁 庆隆苑 朝南一室一厨一卫带大阳台 价格2700 房间干净清爽 可月付 随时看房](https://www.douban.com/group/topic/171699976/)
+
+[房东出租，天堂软件园，财大旁，近2号线，2000+可短租可月付有电梯](https://www.douban.com/group/topic/175058907/)
+
+[大悦城，黄龙打车起步价【三宝郡庭】朝南一室一厅，卫生间干湿分离，特价只要2300 ，可押一付一       实拍照片，随时看房1585818](https://www.douban.com/group/topic/175614290/)
+
+[西湖黄龙浙大玉泉北门庆丰公寓多套一室2100起 支付宝德力西天际中石油](https://www.douban.com/group/topic/175047651/)
+
+[黄龙零距离  丁香公寓   原户型一室出租房东直租   非诚勿扰  有意联系手机微信同号15158828692](https://www.douban.com/group/topic/174583145/)
+
+[二号线附近，铂澜大象成，耀江文萃苑，一室一厅一卫电梯房，无中介随时看房](https://www.douban.com/group/topic/175761799/)
+
+[（已租）有赞斜对面西湖家园公寓3楼电梯房单间直租，公用厨卫，出门公交直达蚂蚁金服汽车西站支付宝等1200](https://www.douban.com/group/topic/175455492/)
+
+[文三西路紫荆花路古墩路房东出租精装小区房](https://www.douban.com/group/topic/175179642/)
+
+[天堂软件园城西银泰附近 西城纪loft民宿两室一厅出租 押一付一 拎包入住](https://www.douban.com/group/topic/174419183/)
+
+[二号线古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租，租客稳定价格可谈，周边物美，电影院，健身房，看房联系18324429499微信同](https://www.douban.com/group/topic/174958814/)
+
+[个人转租。可以和直接房东续签。二号线学院路一室独卫带厨](https://www.douban.com/group/topic/175158097/)
+
+[地铁5号线和睦站，大悦城附近精装一室，特价出租。](https://www.douban.com/group/topic/174874276/)
+
+[翠苑怡景湾6楼朝南，标准一室一厅！物美大卖场，](https://www.douban.com/group/topic/172891583/)
+
+[近5号线和睦站地铁口，大悦城零距离，三宝郡庭一室一厅出租，房东直租，特价2000多点](https://www.douban.com/group/topic/175595861/)
+
+[房东直租龙湖天玺原户型独卫主卧，近海康、物联网街、信息港](https://www.douban.com/group/topic/174409366/)
+
+[【房屋出租】学院路地铁口枫华府第精装一室，绿城物业，家电齐全，近支付宝，蚂蚁金服，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174635830/)
+
+[翠苑一区朝南主卧2100找室友（可以情侣，可以好友，如果你预算高，单人也可以）](https://www.douban.com/group/topic/175102295/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园，香槟国际朝南一室独立厨卫，特价2300 ！包物业！！      ](https://www.douban.com/group/topic/175140093/)
+
+[庆云居一室一厅一卫一厨  '季度付2300可月付，V：lw1412670385](https://www.douban.com/group/topic/173758842/)
+
+[阿里西溪园区步行5分钟精装朝南北欧风单间](https://www.douban.com/group/topic/175570274/)
+
+[二号线学院路个人转租一室独卫带厨](https://www.douban.com/group/topic/175158334/)
+
+[【中天西城纪】一室一厅2600
+城西银泰旁，中天mcc.天堂软件园.莱茵矩阵，民用水电，包物业15068810656](https://www.douban.com/group/topic/174281089/)
+
+[宋城旁转塘家园朝南内卫带阳台1600](https://www.douban.com/group/topic/175737839/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175870166/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868731/)
+
+[浙大紫金港校区 三墩地铁口100米 转租一套独卫的房子 有共用厨房 随时搬走](https://www.douban.com/group/topic/155496245/)
+
+[房东直租  大悦城三宝郡庭 近天堂软件园乐提港远洋国际黄龙 中天cmc   城西银泰](https://www.douban.com/group/topic/175735615/)
+
+[城西银泰 大悦城 庆隆苑朝南 一室一厅  电梯房 ](https://www.douban.com/group/topic/174570198/)
+
+[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
+
+[曲荷巷，朝南独卫，价格2200，旁边就是黄龙万科，离黄龙时代广场走路也只要几分钟，距离二号线学院路地铁口也不远，近黄龙](https://www.douban.com/group/topic/175758802/)
+
+[黄龙边上 汇丰公寓多套精装一室一厨一卫 朝南带阳台 位于天目山路玉古路口](https://www.douban.com/group/topic/175513576/)
+
+[西城纪精装一室loft，近天堂软件园，城西银泰，，印象城等等，现在年付只要2520包物业，无中介费！](https://www.douban.com/group/topic/175745257/)
+
+[翠苑附近，学院路旁边的，一室一厅一卫出租，天然气厨房。天堂软件园附近](https://www.douban.com/group/topic/172098752/)
+
+[金地悉呈国际社区-阿里黄龙-一室两室超大精装修](https://www.douban.com/group/topic/174031214/)
+
+[整租：拱墅区，浙江大学城市学院附近，石祥路，【万科智谷】，精装修loft一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175220981/)
+
+[二号线学院路站一室出租独门独户独卫价格1200，家电家具齐全，面积大，适合一到两个人入住，](https://www.douban.com/group/topic/175796378/)
+
+[朝南大开间、LOFT长租限时特价！！水网络物业全包1280元起！](https://www.douban.com/group/topic/150227538/)
+
+[黄龙商圈，中融城市花园，天目山路228号，一室独立厨卫，1800](https://www.douban.com/group/topic/175490619/)
+
+[［西湖区·留下·留和路］浙工大边上朝南整租一室，可月付无中介费，近和创园汇峰国际印象城](https://www.douban.com/group/topic/171162998/)
+
+[庆隆苑 一室朝南有阳台 独立厨卫 干湿分离卫生间、随时看房](https://www.douban.com/group/topic/175792005/)
+
+[古翠路地铁旁边 嘉绿苑 一室一厅 便宜出租 房东直租 无中介费](https://www.douban.com/group/topic/174794756/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里 。](https://www.douban.com/group/topic/174605143/)
+
+[庆隆苑 大悦城 天堂软件园 精装一室独立厨卫 燃气厨房 特惠只要2180！ 错过再没有！](https://www.douban.com/group/topic/175862643/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175818132/)
+
+[房东直租！西湖文化广场省人民医院 零距离 一室一厨一卫带阳台 精品公寓 2300家电齐全！可做饭 、无中介费](https://www.douban.com/group/topic/174882641/)
+
+[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/169103735/)
+
+[三宝郡庭 大悦城0距离 天堂软件园边 精装一室一厅燃气厨房 特惠仅需3280月](https://www.douban.com/group/topic/175860458/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175744809/)
+
+[申花板块 城西银泰  2-5号地铁沿线 三墩 三坝 萍水街等 多套单间合租 整租一室等出租 月付季付 微15988820069](https://www.douban.com/group/topic/175575190/)
+
+[翠苑三区精装一室一厅，家具齐全，附近交通便捷，地段好临近物美，看房联系电话15700183890，微信同号。](https://www.douban.com/group/topic/175817237/)
+
+[房东直租，益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/175856401/)
+
+[转塘 云栖小镇附近 美院旁 精装单身公寓 特价1800包物业出租 视野好 环境好 钱塘one小区 拎包入住](https://www.douban.com/group/topic/166950207/)
+
+[租客转租房租已经空置、随时可看、大悦城旁边庆隆苑一室一厅标准户型3100季度付。需要的抓紧。手慢无。47605814007微信同号](https://www.douban.com/group/topic/175861204/)
+
+[翠苑三区 一室一厅 黄金楼层 精装修 近文一路学院路 走路10分钟到学院路二号线站，联系电话18698577502](https://www.douban.com/group/topic/175855198/)
+
+[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
+
+[翠苑二区精装一室一厅房间朝南厅朝南 价格实惠看房方便 翠苑公交站 物美超市 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175803301/)
+
+[出租 三宝郡庭 精装一室一厅 近黄龙  大悦城隔壁  美都广场 西城时代 庆隆苑 ](https://www.douban.com/group/topic/175776022/)
+
+[学院路地铁口附近，新德雅公寓精装一室出租，带管道燃气厨房。](https://www.douban.com/group/topic/174412137/)
+
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175791657/)
+
+[【房东直租】拱墅区庆隆苑 次卧独卫朝南单间](https://www.douban.com/group/topic/175118945/)
+
+[房东 整租 精装套房 干净整洁 家电齐全 蚂蚁金服 黄龙国际 支付宝 浙商财富中心  联合大厦附近](https://www.douban.com/group/topic/175717750/)
+
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  网红聚集地 情侣居住首选
+包物业 微信1756828823](https://www.douban.com/group/topic/175813666/)
+
+[拱墅 大悦城旁 庆隆苑朝南带阳台一室一厅 房东直降](https://www.douban.com/group/topic/175745134/)
+
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175774447/)
+
+[大悦城 三宝郡庭 一室一厅 40平 管道煤气 房东直租](https://www.douban.com/group/topic/175251199/)
+
+[翠苑三区 精装一室一厅 天堂软件园 物美 家具家电齐全 拎包入住 随时看房](https://www.douban.com/group/topic/175758028/)
+
+[城西银泰 拱苑小区 一室一厨一卫 价格2100 图片现场实拍 近矩阵国际 黄龙万科 无中介费15906652641微信同步](https://www.douban.com/group/topic/175717178/)
+
+[[非中介]滨江宝龙华盛达旁！精装整租一室3000！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
+
+[城西益乐新村租房](https://www.douban.com/group/topic/175687462/)
+
+[拱墅区 浙大城市学院 万科智谷 一室一卫 包物业3300每月](https://www.douban.com/group/topic/175749172/)
+
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  民用水电 独立厨卫
+丁女士15167180949，中介勿扰](https://www.douban.com/group/topic/175813289/)
+
+[【好房出租】今日嘉园性价比超高一室，文一路附近，翠园小区，学院路地铁站旁，有意者可以联系我：17530344351，【微信同号】](https://www.douban.com/group/topic/175632100/)
+
+[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
+
+[自家房子出租文一路益乐新村一室一卫(独立卫生间)价950元拎包入住丰潭路二号地铁口步行十分钟。微信同步13958003193](https://www.douban.com/group/topic/175740349/)
+
+[求租天堂软件园附近，女生合租或一室一卫，5月中旬可入住](https://www.douban.com/group/topic/175070970/)
+
+[杭州拱墅区大悦城和睦地铁口附近三宝郡庭一室一卫出租2000看房联系A15858851429](https://www.douban.com/group/topic/175593432/)
+
+[求租求租求租](https://www.douban.com/group/topic/175201407/)
+
+[大悦城房源，三宝郡庭一室一厨一卫一餐厅一阳台，卫生间干湿分离价格2200，包网包物业出水电](https://www.douban.com/group/topic/175718486/)
+
+[拱墅近万达，运河上街，瓜山新苑，押一付一房东直租，民用水电，精装公寓，品牌家电，网络齐全，配有公区健身房。](https://www.douban.com/group/topic/172492888/)
+
+[1600可月付合租，钱江世纪城，博地中心，2号线飞虹路地铁站，顺发美哉美城朝南带花园](https://www.douban.com/group/topic/173088150/)
+
+[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175755243/)
+
+[蓝钻天成 单身公寓小套一室 五号线和睦站地铁口 大悦城附近 2000出头秒杀  手慢无](https://www.douban.com/group/topic/175763698/)
+
+[应届毕业生0押金，1300可月付，2号线飞虹路地铁站，钱江世纪城，盈丰路，顺发美哉美城](https://www.douban.com/group/topic/175504557/)
+
+[蓝钻天城小区，地铁和睦站，大悦城附近，拎包入住，包物业，一室一厅一卫，2350元微信18067911710](https://www.douban.com/group/topic/173848222/)
+
+[房东直租 无中介费用  学院路地铁口 一室一厅一卫 公用天然气厨房 价格实在 看房方便 V 同步15868405052](https://www.douban.com/group/topic/175794653/)
+
+[【可短租/长租】无中介费房东直租真实房源，文二西路丰潭路口益乐新村南区，靠2号地铁丰潭站A出口零距离，配套设施齐全拎包入住](https://www.douban.com/group/topic/175455451/)
+
+[古荡新村东/ 精装一室一厅一厨一卫一阳台 白色调，房东去年全新装修/近黄龙 支付宝 丽都会 3000💰](https://www.douban.com/group/topic/175474998/)
+
+[蓝钻天成 一室一厅 网红公寓 45平 特价2000+ 和睦地铁口0距离 大悦城附近 汽车北站 ](https://www.douban.com/group/topic/175683174/)
+
+[地铁2号线中河北路，近浙一浙二邵逸夫，找室友](https://www.douban.com/group/topic/169845599/)
+
+[塘河北村豪华装修一室户转租 靠近大悦城乐堤港](https://www.douban.com/group/topic/175683543/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东47-1-403室，一室一厅一厨一卫一阳台，民用水电，只要3280元，随时看房，](https://www.douban.com/group/topic/175368211/)
+
+[（转租）商住两用酒店式公寓临平地铁口银泰楼上吃喝玩乐行及其方便2600](https://www.douban.com/group/topic/169664186/)
+
+[押一付一 聚丰公寓 一室 黄龙中心 近花都 SOS 古越堂 π吧 德力西 支付宝 天际大厦](https://www.douban.com/group/topic/175366561/)
+
+[丰谭地铁口300米 天堂软件园 嘉绿文苑 一室一厨一卫 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/175383395/)
+
+[翠苑一区 两室合租 隔壁是女孩 翠苑最便宜一室带独立厨卫 价格仅需2100 民用水电 学院路地铁口看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175637735/)
+
+[天堂软件园，中天mcc，大悦城，城西银泰附近，一室一厅一卫一厨，朝南带飘窗，庆隆苑小区，只要2300，包物业，无中介费](https://www.douban.com/group/topic/175363597/)
+
+[滨江，长岛之春朝南侧卧1500](https://www.douban.com/group/topic/175319417/)
+
+[2400/月一室一厨一卫带阳台 1.8大床拎包入住庆隆苑 大悦城天堂软件园步行上班](https://www.douban.com/group/topic/175616603/)
+
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175773597/)
+
+[华元天鹅堡一室一厅一厨一卫
+珀莱雅大厦 ， 浙大玉泉   黄龙  旁，
+环境位置好 ，  性价比高，
+家电齐全拎包入住](https://www.douban.com/group/topic/175198715/)
+
+[教工路地铁附近房子转租，中介勿扰](https://www.douban.com/group/topic/174783631/)
+
+[出租 整租一室一厅 学院路地铁口 天然气民用水电 住宅电梯房](https://www.douban.com/group/topic/175603408/)
+
+[[非中介]滨江宝龙！精装整租一室2900！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
+
+[杭州大悦城旁一室一厅新小区房东直租](https://www.douban.com/group/topic/174833097/)
+
+[转塘 云栖小镇 美院旁 精装一室公寓 一线江景房 特价1800包物业出租 家具家电齐全](https://www.douban.com/group/topic/166952916/)
+
+[【出租】蓝钻天城单身公寓一室 2200年付 民用水电 朝南 近城西银泰 大悦城 楼下就是五号线和睦站 汽车北站 复地壹中心 和睦院](https://www.douban.com/group/topic/175769115/)
+
+[押一付一 天苑花园 精装一室 近星光城 华星时代广场 支付宝 地铁口](https://www.douban.com/group/topic/175092631/)
+
+[文一路学院路，翠苑二区一室一厅，出门公交站，学院路地铁站，靠近物美大卖场，省立同德医院，价格美丽，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175758019/)
+
+[和家园12楼一室一厅一厨一卫直租蚂蚁金服支付宝有赞黄龙阿里巴巴附近](https://www.douban.com/group/topic/173003629/)
+
+[个人房东直租大悦城正对面三宝郡庭朝南一室一厅一厨一卫天然气房子](https://www.douban.com/group/topic/175671283/)
+
+[好房直租！大悦城旁三宝郡庭房东配置豪华装修一室](https://www.douban.com/group/topic/175449433/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+](https://www.douban.com/group/topic/175672773/)
+
+[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
+
+[杭州拱墅区大悦城隔壁大悦城一室一厅出租](https://www.douban.com/group/topic/175683475/)
+
+[西湖区 文一路学院路附近 翠苑二区，一室一厅 价格3600可谈 看房电话15257237595同微信](https://www.douban.com/group/topic/175752029/)
+
+[西湖区益乐新村北区，整租一室一卫，独门独户独卫](https://www.douban.com/group/topic/171372807/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里](https://www.douban.com/group/topic/174524970/)
+
+[【留下-西溪创立方】两人合住，上野双排！近汽车西站，有赞新办公楼，西溪印象城！＃人均月付880，包物业包宽带＃](https://www.douban.com/group/topic/175455681/)
+
+[古荡新村，一室一厅一卫，每月租金1800元](https://www.douban.com/group/topic/173581858/)
+
+[古翠路地铁口，世纪新城一室，落地窗，电梯房，拎包入住，2800每月，看房电话135.6712.0265微信同号](https://www.douban.com/group/topic/174875195/)
+
+[拱墅 大悦城旁 庆隆苑单间 独立厨卫 房东直降](https://www.douban.com/group/topic/175745345/)
+
+[黄龙万科，德力西，快手，学院站，欧美中心，恒励大厦支付宝大厦，多套精装一室可选2500-3600/月15857113890](https://www.douban.com/group/topic/174830415/)
+
+[房东直租出租西湖区益乐新村四楼朝南一室一卫大小都有价800到1300元](https://www.douban.com/group/topic/175434381/)
+
+[【求租】地铁2号线 学院路到金家渡沿线都可，近地铁站，一室一厅一厨一卫](https://www.douban.com/group/topic/175550652/)
+
+[2号线学院路地铁口 黄龙万科中心 德力西九莲新村 华门世家多套精装修一室独立厨卫 看房随时联系:18717816286 微信同号](https://www.douban.com/group/topic/172391584/)
+
+[城西银泰附近找一个合租的小姐姐 房东自住房出租豪华装修](https://www.douban.com/group/topic/169477332/)
+
+[杭州文三路黄龙天苑花园2400/月一室一厨一卫 华星时代 文都苑支付宝黄龙万科](https://www.douban.com/group/topic/175323222/)
+
+[西湖区 枫华府第小区 地铁二号线零距离 新出房源 独立厨卫 一室一厅一厨一卫](https://www.douban.com/group/topic/158654764/)
+
+[【un公社-单身公寓】＃干湿分离 首月半价 押一付一＃近小和山大学城，浙工大对面，东信和创园，西溪印象城！](https://www.douban.com/group/topic/175759928/)
+
+[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
+
+[【西湖黄龙租房】世贸丽晶城精装一室一厅，电梯房，EAC，近黄龙，百脑汇，数源软件园，看房联系：18627856817（同微信】](https://www.douban.com/group/topic/159846512/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫](https://www.douban.com/group/topic/175531580/)
+
+[丰北一苑 两室一厅 60方户型 朝南户型，无任何中介费，飞虹路地铁口，wx联系：ppj19891020（加好友时请备注租房）	](https://www.douban.com/group/topic/174833729/)
+
+[拱墅和睦大悦城对面。都景公寓。一室一厅一卫一厨。房东自住。便宜出租，只要一千八。看房热线。19883131791](https://www.douban.com/group/topic/175309200/)
+
+[转塘 浦沿对面 美院旁 精装公寓 特价1800包物业出租 一线江景房 视野好 环境好 价格优惠 家具家电齐全 全新出租](https://www.douban.com/group/topic/166951770/)
+
+[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
+
+[二号线古翠路地铁附近 世纪新城精装修一室](https://www.douban.com/group/topic/171369074/)
+
+[庆隆苑一室一厅  南北通透  房东直租，无中介费   电话：13588182991](https://www.douban.com/group/topic/175095748/)
+
+[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
+
+[春江彼岸三室出租，价格美丽4757好房不要错过，错过不在有，看房联系13047630883（微信同号）](https://www.douban.com/group/topic/175641013/)
+
+[地铁二号线三墩站 品牌公寓直租 不收中介费 押一付一 可以短租](https://www.douban.com/group/topic/174926097/)
+
+[自家房地铁房无中介费一室一卫1000](https://www.douban.com/group/topic/171808887/)
+
+[阿里园区旁边，房东直租，次卧室带独立卫生间，高端小区万科溪望(无中介费)](https://www.douban.com/group/topic/148911168/)
+
+[https://www.douban.com/doubanapp/dispatch?uri=/group/topic/175309789](https://www.douban.com/group/topic/175638673/)
+
+[国际花园单身公寓，一室一卫厨房，看房提前预约[愉快]特价2000处理，支付宝大楼旁，黄龙商圈13175050712微信同号房东直租，无中介费](https://www.douban.com/group/topic/175661008/)
+
+[西湖黄龙国际花园一室一厨一卫家电齐全 2600/月拎包入住真实图片](https://www.douban.com/group/topic/175086492/)
+
+[西城纪全明一室电梯房出租，房间朝南带大窗，可用空间宽阔，卫生间干湿分离，可做饭，近天堂软件园，随时可看房联系15867056245微信](https://www.douban.com/group/topic/175445083/)
+
+[中大银泰城城市学院精装一室2100三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
+
+[大悦城旁边三宝郡庭一室一厨一卫一阳台一餐厅，特价2200。月付季付都可以。需要的抓紧。手慢无。17605814007微信同号](https://www.douban.com/group/topic/175829227/)
+
+[城西银泰附近居多房源/三宝郡庭全新首次出租，轻奢风格，朝南一室一厅一厨一卫，天然气厨房找一个爱家的你，近大悦城交通便利别问直接私聊看视频](https://www.douban.com/group/topic/175815630/)
+
+[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
+
+[【好房出租】今日嘉园，一室一厅，近学院路站，近御西湖，翠苑，黄龙万科，价格实惠，可月份，看房联系：18712601440（微信同号）](https://www.douban.com/group/topic/175485891/)
+
+[拱墅中大银泰城市学院旁精装一室2100三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
+
+[租客转租，2号线丰潭路古翠路双地铁口，南都银座，一室一厨（管煤）](https://www.douban.com/group/topic/175488203/)
+
+[文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/175775079/)
+
+[西城纪 标准一室一厅 河景房 近天堂软件园 靠近黄龙金茂悦 矩阵国际 联系电话18698577502微信同号	
+	](https://www.douban.com/group/topic/175597765/)
+
+[【好房出租】翠苑一区 标准一室一厅 近学院路地铁口 黄龙万科 行知小学 颐高数码 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/175401385/)
+
+[标题：城西银泰附近，拱苑小区合租单间1300..1400..1700..1800公用燃气厨房   ](https://www.douban.com/group/topic/174513314/)
+
+[黄龙万科中心 数码大厦 一室一厅随时看房](https://www.douban.com/group/topic/175031169/)
+
+[金成花园近丰潭路地铁口 一室一厅一厨一卫 朝南带阳台   民用水电 黄金楼层采光好 可随时入住 配置齐全 可押一付一](https://www.douban.com/group/topic/175771988/)
+
+[大悦城 三宝郡庭 整租61方原户型 一室一厅 小区最低价](https://www.douban.com/group/topic/173159992/)
+
+[定山西苑合租房精装修~~~价格从优](https://www.douban.com/group/topic/173175747/)
+
+[翠苑一区精装标准一室一厅出租，房间客厅朝南，采光好，黄金楼层，带燃气，近学院路地铁站，出行便利，随时可看房，联系15867056245微信](https://www.douban.com/group/topic/175367431/)
+
+[城西银泰附近 大悦城旁 近地铁五号线 西城时代 朝南55方一室一厅一厨一卫 民用水电 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166701290/)
+
+[ 庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2300随时看房
+](https://www.douban.com/group/topic/173077780/)
+
+[二号线学院路地铁口一室整租价格1200，独门独户独卫装修干净家电齐全，拎包入住随时看房，步行100-300米就是地铁口](https://www.douban.com/group/topic/175841746/)
+
+[翠苑一区一室一厅1050精装修拎包入住15906669509](https://www.douban.com/group/topic/175362107/)
+
+[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
+
+[杭州下沙租房 传媒学院附近 元成恒盛公寓 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1300](https://www.douban.com/group/topic/174380048/)
+
+[杭州拱墅区大悦城附近庆隆苑一室一厅租房](https://www.douban.com/group/topic/175679893/)
+
+[【转租 可短租4个月】拱墅区凯德湖墅精装套间，无中介费！性价比超高！](https://www.douban.com/group/topic/174937477/)
+
+[整租！！二号线地铁口 翠苑四区整租一室一厅一厨一卫，民水民电](https://www.douban.com/group/topic/175779001/)
+
+[教工路上华门自由公寓电梯房，一室一厅一卫，大卧室带飘窗采光好，大客厅活动空间大，燃气厨房做饭，附近工商大学，电子科技大学，大悦城购物中心](https://www.douban.com/group/topic/174122118/)
+
+[天堂软件园旁边，庆隆苑精装一室出租。独立厨卫。特温馨](https://www.douban.com/group/topic/172115289/)
+
+[中兴文都苑 朝南 精装一室 独卫 支付宝 黄龙万科 华星时代 近学院路地铁口 华门世家](https://www.douban.com/group/topic/175618732/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东一室一厅，民用水电，只要3280元，随时看房，有意联17600166524微信同号](https://www.douban.com/group/topic/175383587/)
+
+[杭州天河西苑，2室1厅1卫1厨，整租](https://www.douban.com/group/topic/175313181/)
+
+[ 【好房出租】今日嘉园，一室一厅，交通便利，家具齐全，价格实惠。欢迎来电咨询17356518293（VX同号）](https://www.douban.com/group/topic/175311723/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175747753/)
+
+[留下肯德基背后留下古街安乐新村单间直租公交直达有赞蚂蚁金服西溪印象城](https://www.douban.com/group/topic/175505175/)
+
+[ 学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 ](https://www.douban.com/group/topic/175775009/)
+
+[金色蓝庭整租一室一厅一厨一卫原户型 2000+ 天堂软件园上班的小伙伴可以了解下这套房子，上班非常方便。15267118224](https://www.douban.com/group/topic/175746342/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175302820/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175745342/)
+
+[博奥路【地铁口】【房东直租】 找室友1600/月【限女生】](https://www.douban.com/group/topic/173375492/)
+
+[三宝郡庭，整租一室小阳台，独立厨卫，民用水电，大悦城200米，和睦地铁口，拎包入住，随时看房，最低价1900](https://www.douban.com/group/topic/171309010/)
+
+[翠苑二区一室一厅一厨一卫整租 3600/月 付款方式灵活，季付 半年付 年付 可优惠。
+电话/微信：15906655561](https://www.douban.com/group/topic/175701326/)
+
+[文一路教工路今日嘉园，精装修一室一厅，临近学院路站，出门公交站，天然气做饭，价格4000+，看房联系18458872590，同v](https://www.douban.com/group/topic/175599170/)
+
+[【求租+找室友】求合租近江地铁站附近的两室一厅](https://www.douban.com/group/topic/174911349/)
+
+[出租:黄龙体育馆边上零距离朝南带阳台一室一厨一卫，看房联系15857113890](https://www.douban.com/group/topic/175187378/)
+
+[杭州下沙租房 传媒学院附近 东城大厦 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1350](https://www.douban.com/group/topic/174643565/)
+
+[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168244046/)
+
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/175444537/)
+
+[房东降价直租：地铁二号院学院路站翠苑附近中豪晴园独立一室一厅一卫1400元出租，无中介费，独立一户。](https://www.douban.com/group/topic/171440038/)
+
+[【个人急转】月付3000翡翠城翡翠湾均朝南的两室一厅90平大house！近阿里巴巴淘宝城、西溪湿地、华立科技园](https://www.douban.com/group/topic/173710993/)
+
+[丰潭路地铁口，丽都会旁边，嘉绿文苑](https://www.douban.com/group/topic/175487049/)
+
+[黄龙万科中心 中融城市花园 整租一室一卫（独立厨卫）](https://www.douban.com/group/topic/175372525/)
+
+[超低价！拱墅区庆隆苑价格只要2400一室一厅干湿分离 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/175051660/)
+
+[大悦城零距离黄龙打车起步价三宝郡庭朝南一室一厅管道煤气](https://www.douban.com/group/topic/175744234/)
+
+[地铁五号线和睦站大悦城购物中心旁边 三宝郡庭一室一厅一厨一卫加管道天然气 实拍照片](https://www.douban.com/group/topic/175526163/)
+
+[【好房出租】翠苑三区，精装一室，近2号线地铁古翠路站，物美，同德医院，天堂软件园，价格实惠，可月付，看房联系：18712601440（同V）](https://www.douban.com/group/topic/175400364/)
+
+[【找房】西湖区，近支付宝Z空间 整租一室一厅 预算2000-4000](https://www.douban.com/group/topic/175515403/)
+
+[房东直租文三西路紫荆花路口嘉禾花苑精装一室一厨一卫家电齐全](https://www.douban.com/group/topic/168843338/)
+
+[整租：黄龙，阿里中心，蚂蚁金服，浙江大学紫金港，天目山路，标准一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175691923/)
+
+[大悦城周边小区 原户型一室一厅一卫  房子干净清爽  只要2800 近乐提港  远洋国际  和睦地铁口联系15057521259](https://www.douban.com/group/topic/175799922/)
+
+[租客转租 南都银座 无中介费](https://www.douban.com/group/topic/175487516/)
+
+[押一付一  出租 天苑花园 一室一厅  近星光城 华星时代广场 支付宝 黄龙万科  古翠地铁口](https://www.douban.com/group/topic/175372924/)
+
+[莫干山路大悦城附近美都广场一室精装1800，家具家电齐全，原户型！](https://www.douban.com/group/topic/175820858/)
+
+[[留下]精装单身公寓一室一厅一厨一卫可月付近汇峰国际公交直达黄龙](https://www.douban.com/group/topic/175516710/)
+
+[2号地铁线古翠路步行500米 浙江省立同德医院 翠苑四区 一室一厅一厨一卫 整租](https://www.douban.com/group/topic/175350258/)
+
+[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065247/)
+
+[天目山路支付宝隔壁中融城市花园一室一卫2200/月 月付 德力西浙大汇丰现代国际](https://www.douban.com/group/topic/175358735/)
+
+[拱墅区 城市学院 中国铁建国际城 万科智谷 精装一室1500](https://www.douban.com/group/topic/175340951/)
+
+[枫华府第 一室一厅出租 微信～电话 13633009029](https://www.douban.com/group/topic/175455405/)
+
+[『西湖区留下小和山』💰700-1150单间带独卫，月付无中介费，近工业大学和创园研究所汇峰有赞黄龙](https://www.douban.com/group/topic/175279183/)
+
+[房东直租古墩路浙商财富中心蘑菇街对面嘉禾花苑精装一室一厨一卫家电设施齐全](https://www.douban.com/group/topic/169613110/)
+
+[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168420697/)
+
+[大悦城庆隆苑一室朝南有阳台、独立厨卫、干湿分离卫生间、随时看房。17605814007微信同号](https://www.douban.com/group/topic/175794265/)
+
+[之江公寓次卧押一付一](https://www.douban.com/group/topic/136026135/)
+
+[【房东直租】城西嘉禾花苑精装修套房急租可做饭](https://www.douban.com/group/topic/168970405/)
+
+[嘉禾花苑房东出租精装小区房](https://www.douban.com/group/topic/173428760/)
+
+[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
+
+[拱墅区和睦大悦城对面都景公寓。一室一厅一厨一卫，房东自住的。现在出租。价格实惠，只要1800， 给远在他乡的你一个温馨的小家](https://www.douban.com/group/topic/175307762/)
+
+[临近黄龙万科，，文三路上，古荡新村东4，一室一厅一厨一卫一阳台，民用水电，只要3280元，好房不等人，17605814007微信同号](https://www.douban.com/group/topic/175788964/)
+
+[天堂软件园 中天MCC 翠苑逸景湾 精装主卧 直租月付](https://www.douban.com/group/topic/175339540/)
+
+[大悦城旁，三宝郡庭。一室一厅一厨一卫一阳台  价格2399。房东直租押一付一。实拍。](https://www.douban.com/group/topic/175284331/)
+
+[庆隆苑朝南带阳台一室一厅 超级大阳台 卫生间干湿分离 客厅都可做一个房间](https://www.douban.com/group/topic/174207224/)
+
+[大悦城，天堂软件园附近，庆隆苑小区，一室一厅一厨一卫，只要2320元，包物业。17605814007微信同号](https://www.douban.com/group/topic/175788708/)
+
+[2号线丰潭路古翠路双地铁口，西湖国际科技大厦旁，南都银座，一室一厨（管煤）一卫，超大约40m，喜欢的朋友扫码私信我](https://www.douban.com/group/topic/174306682/)
+
+[拱宸桥东，浙江树人大学，浙大城市学院《蔡马人家》精装一室一厅一厨一卫，家电齐全](https://www.douban.com/group/topic/175667879/)
+
+[（个人转租免中介费）临江花园单间独卫大阳台转租](https://www.douban.com/group/topic/173765626/)
+
+[庆隆苑合租一室出租，电梯房，近天堂软件园，地铁5号线2号线，价格实惠，一千出头一点就可租，可以长租，可做饭，看房联系15867056245微](https://www.douban.com/group/topic/174722244/)
+
+[大悦城旁边 美都广场 精装一室一厅 价格1610 价格便宜 随时看房 秒租房 需要看房联系17179799497](https://www.douban.com/group/topic/175822174/)
+
+[蚂蚁金服 浙商财富中心附近 山水人家带阳台卧室和带飘窗次卧 个人出租](https://www.douban.com/group/topic/172782315/)
+
+[西湖区，学院路地铁口翠苑二区一室一厅一厨一卫整租原户型的45平方。家具家电配齐的直租没有中介费诚心租房联系我18768958293](https://www.douban.com/group/topic/174417163/)
+
+[翠苑四区整租一室一厅一厨一卫，民水民电，无中介](https://www.douban.com/group/topic/175613159/)
+
+[城市学院树人大学边精品公寓押一付一独门独户民用水电价格便宜](https://www.douban.com/group/topic/152315298/)
+
+[个人房地铁房一室一卫1000](https://www.douban.com/group/topic/171763768/)
+
+[2号线 学院路 新德雅公寓 独立厨卫 房东急租 免中介月付](https://www.douban.com/group/topic/174944351/)
+
+[拱墅区庆隆苑次卧 独卫朝南单间 房东直租](https://www.douban.com/group/topic/174915853/)
+
+[靠近大悦城，美都一室一厅整套出租，仅需1510包物业，不要中介费](https://www.douban.com/group/topic/175817374/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园【东方福邸】朝南一室一厅，价格美丽](https://www.douban.com/group/topic/175203911/)
+
+[杭州拱墅区庆隆苑高层一室一厅转租](https://www.douban.com/group/topic/175678479/)
+
+[大悦城附近，美都广场便宜一室单身公寓，租金1600包物业，实图实价，速来秒杀。](https://www.douban.com/group/topic/175818209/)
+
+[5号线和睦站地铁口 整租一室一厅公寓 近城西银泰与大悦城 看房联系13456185772](https://www.douban.com/group/topic/175598677/)
+
+[【房屋出租】翠苑一区学院路地铁口精装一室一厅，近黄龙万科，天堂软件园，家电齐全，连包入住，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174429061/)
+
+[求2号线学院路到建国北路附近或5号线西文街到打铁关地铁口附近一室整租房子](https://www.douban.com/group/topic/175050142/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东，一室一厅一厨一卫一阳台，民用水电，随时看房，推荐全佣，好房不等人，有没有要换房子的朋友啊](https://www.douban.com/group/topic/175370523/)
+
+[整租：五号线，二号线，三坝，萍水街，天堂软件园，中天mcc附近，【西城纪】，精装修loft一室一厅，租金：2500/月。☀️](https://www.douban.com/group/topic/175687661/)
+
+[文一路教工路今日嘉园，精装修一室一厅，近地铁，近黄龙，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175299835/)
+
+[学院路地铁站，翠苑一区，朝南主卧，寻找可爱的小伙伴合租啦](https://www.douban.com/group/topic/174968959/)
+
+[紧急转租近2号线古翠路地铁口、支付宝大楼的龙都大厦大一室，朝南大阳台，可做饭](https://www.douban.com/group/topic/174283927/)
+
+[耀江文萃苑 一室一厅 独卫 管道煤气厨房 学院路地铁口 黄龙万科 枫华府第](https://www.douban.com/group/topic/175164851/)
+
+[租客转租 三宝郡庭 一室一厅 带个小餐厅 2700  位置莫干山路上 大悦城旁边 随时看房 13470429965](https://www.douban.com/group/topic/175304802/)
+
+[近黄龙万科文一物美学院春晓45平一室一厅带阳台](https://www.douban.com/group/topic/175620368/)
+
+[求租 西湖区翠苑或附近的房子](https://www.douban.com/group/topic/158345082/)
+
+[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
+
+[（房东直租：主卧带独卫、次卧3）官河锦庭，滨江西兴地铁口500M](https://www.douban.com/group/topic/174252458/)
+
+[城西银泰附近 大悦城旁 庆隆苑 朝南一室一厨一卫带大阳台 价格2700 房间干净清爽 可月付 随时看房](https://www.douban.com/group/topic/171699976/)
+
+[房东出租，天堂软件园，财大旁，近2号线，2000+可短租可月付有电梯](https://www.douban.com/group/topic/175058907/)
+
+[大悦城，黄龙打车起步价【三宝郡庭】朝南一室一厅，卫生间干湿分离，特价只要2300 ，可押一付一       实拍照片，随时看房1585818](https://www.douban.com/group/topic/175614290/)
+
+[西湖黄龙浙大玉泉北门庆丰公寓多套一室2100起 支付宝德力西天际中石油](https://www.douban.com/group/topic/175047651/)
+
+[黄龙零距离  丁香公寓   原户型一室出租房东直租   非诚勿扰  有意联系手机微信同号15158828692](https://www.douban.com/group/topic/174583145/)
+
+[二号线附近，铂澜大象成，耀江文萃苑，一室一厅一卫电梯房，无中介随时看房](https://www.douban.com/group/topic/175761799/)
+
+[（已租）有赞斜对面西湖家园公寓3楼电梯房单间直租，公用厨卫，出门公交直达蚂蚁金服汽车西站支付宝等1200](https://www.douban.com/group/topic/175455492/)
+
+[文三西路紫荆花路古墩路房东出租精装小区房](https://www.douban.com/group/topic/175179642/)
+
+[天堂软件园城西银泰附近 西城纪loft民宿两室一厅出租 押一付一 拎包入住](https://www.douban.com/group/topic/174419183/)
+
+[二号线古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租，租客稳定价格可谈，周边物美，电影院，健身房，看房联系18324429499微信同](https://www.douban.com/group/topic/174958814/)
+
+[个人转租。可以和直接房东续签。二号线学院路一室独卫带厨](https://www.douban.com/group/topic/175158097/)
+
+[地铁5号线和睦站，大悦城附近精装一室，特价出租。](https://www.douban.com/group/topic/174874276/)
+
+[翠苑怡景湾6楼朝南，标准一室一厅！物美大卖场，](https://www.douban.com/group/topic/172891583/)
+
+[近5号线和睦站地铁口，大悦城零距离，三宝郡庭一室一厅出租，房东直租，特价2000多点](https://www.douban.com/group/topic/175595861/)
+
+[房东直租龙湖天玺原户型独卫主卧，近海康、物联网街、信息港](https://www.douban.com/group/topic/174409366/)
+
+[【房屋出租】学院路地铁口枫华府第精装一室，绿城物业，家电齐全，近支付宝，蚂蚁金服，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174635830/)
+
+[翠苑一区朝南主卧2100找室友（可以情侣，可以好友，如果你预算高，单人也可以）](https://www.douban.com/group/topic/175102295/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园，香槟国际朝南一室独立厨卫，特价2300 ！包物业！！      ](https://www.douban.com/group/topic/175140093/)
+
+[庆云居一室一厅一卫一厨  '季度付2300可月付，V：lw1412670385](https://www.douban.com/group/topic/173758842/)
+
+[阿里西溪园区步行5分钟精装朝南北欧风单间](https://www.douban.com/group/topic/175570274/)
+
+[二号线学院路个人转租一室独卫带厨](https://www.douban.com/group/topic/175158334/)
+
+[【中天西城纪】一室一厅2600
+城西银泰旁，中天mcc.天堂软件园.莱茵矩阵，民用水电，包物业15068810656](https://www.douban.com/group/topic/174281089/)
+
+[宋城旁转塘家园朝南内卫带阳台1600](https://www.douban.com/group/topic/175737839/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175870166/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868731/)
+
+[浙大紫金港校区 三墩地铁口100米 转租一套独卫的房子 有共用厨房 随时搬走](https://www.douban.com/group/topic/155496245/)
+
+[房东直租  大悦城三宝郡庭 近天堂软件园乐提港远洋国际黄龙 中天cmc   城西银泰](https://www.douban.com/group/topic/175735615/)
+
+[城西银泰 大悦城 庆隆苑朝南 一室一厅  电梯房 ](https://www.douban.com/group/topic/174570198/)
+
+[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
+
+[曲荷巷，朝南独卫，价格2200，旁边就是黄龙万科，离黄龙时代广场走路也只要几分钟，距离二号线学院路地铁口也不远，近黄龙](https://www.douban.com/group/topic/175758802/)
+
+[黄龙边上 汇丰公寓多套精装一室一厨一卫 朝南带阳台 位于天目山路玉古路口](https://www.douban.com/group/topic/175513576/)
+
+[西城纪精装一室loft，近天堂软件园，城西银泰，，印象城等等，现在年付只要2520包物业，无中介费！](https://www.douban.com/group/topic/175745257/)
+
+[翠苑附近，学院路旁边的，一室一厅一卫出租，天然气厨房。天堂软件园附近](https://www.douban.com/group/topic/172098752/)
+
+[金地悉呈国际社区-阿里黄龙-一室两室超大精装修](https://www.douban.com/group/topic/174031214/)
+
+[整租：拱墅区，浙江大学城市学院附近，石祥路，【万科智谷】，精装修loft一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175220981/)
+
+[二号线学院路站一室出租独门独户独卫价格1200，家电家具齐全，面积大，适合一到两个人入住，](https://www.douban.com/group/topic/175796378/)
+
+[朝南大开间、LOFT长租限时特价！！水网络物业全包1280元起！](https://www.douban.com/group/topic/150227538/)
+
+[黄龙商圈，中融城市花园，天目山路228号，一室独立厨卫，1800](https://www.douban.com/group/topic/175490619/)
+
+[［西湖区·留下·留和路］浙工大边上朝南整租一室，可月付无中介费，近和创园汇峰国际印象城](https://www.douban.com/group/topic/171162998/)
+
+[庆隆苑 一室朝南有阳台 独立厨卫 干湿分离卫生间、随时看房](https://www.douban.com/group/topic/175792005/)
+
+[古翠路地铁旁边 嘉绿苑 一室一厅 便宜出租 房东直租 无中介费](https://www.douban.com/group/topic/174794756/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里 。](https://www.douban.com/group/topic/174605143/)
+
+[整租：西湖区，黄龙体育中心，阿里中心对面，蚂蚁金服附近，天目山路，【古荡新村】，精装修一室一厅，4楼朝南，租金：2800/月。](https://www.douban.com/group/topic/175383768/)
+
+[【房东直租】我是城西益乐新村90后小房东非中介免费看房靠近二号线丰潭路直租一室（一厨）一卫800元起](https://www.douban.com/group/topic/175873696/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868664/)
+
+[翠苑三区一室一厅，精装实用好房找个好租客](https://www.douban.com/group/topic/175074882/)
+
+[房东直租，翠苑三区一室一厅精精精装修好房～](https://www.douban.com/group/topic/175074811/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175869876/)
+
+[房东直租 大悦城正对面三宝郡庭 朝南一室一厅一厨一卫天然气厨房房子](https://www.douban.com/group/topic/174883843/)
+
+[庆隆苑 大悦城 天堂软件园 精装一室独立厨卫 燃气厨房 特惠只要2180！ 错过再没有！](https://www.douban.com/group/topic/175862643/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175818132/)
+
+[房东直租！西湖文化广场省人民医院 零距离 一室一厨一卫带阳台 精品公寓 2300家电齐全！可做饭 、无中介费](https://www.douban.com/group/topic/174882641/)
+
+[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/169103735/)
+
+[三宝郡庭 大悦城0距离 天堂软件园边 精装一室一厅燃气厨房 特惠仅需3280月](https://www.douban.com/group/topic/175860458/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175744809/)
+
+[申花板块 城西银泰  2-5号地铁沿线 三墩 三坝 萍水街等 多套单间合租 整租一室等出租 月付季付 微15988820069](https://www.douban.com/group/topic/175575190/)
+
+[翠苑三区精装一室一厅，家具齐全，附近交通便捷，地段好临近物美，看房联系电话15700183890，微信同号。](https://www.douban.com/group/topic/175817237/)
+
+[房东直租，益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/175856401/)
+
+[转塘 云栖小镇附近 美院旁 精装单身公寓 特价1800包物业出租 视野好 环境好 钱塘one小区 拎包入住](https://www.douban.com/group/topic/166950207/)
+
+[租客转租房租已经空置、随时可看、大悦城旁边庆隆苑一室一厅标准户型3100季度付。需要的抓紧。手慢无。47605814007微信同号](https://www.douban.com/group/topic/175861204/)
+
+[翠苑三区 一室一厅 黄金楼层 精装修 近文一路学院路 走路10分钟到学院路二号线站，联系电话18698577502](https://www.douban.com/group/topic/175855198/)
+
+[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
+
+[翠苑二区精装一室一厅房间朝南厅朝南 价格实惠看房方便 翠苑公交站 物美超市 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175803301/)
+
+[出租 三宝郡庭 精装一室一厅 近黄龙  大悦城隔壁  美都广场 西城时代 庆隆苑 ](https://www.douban.com/group/topic/175776022/)
+
+[学院路地铁口附近，新德雅公寓精装一室出租，带管道燃气厨房。](https://www.douban.com/group/topic/174412137/)
+
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175791657/)
+
+[【房东直租】拱墅区庆隆苑 次卧独卫朝南单间](https://www.douban.com/group/topic/175118945/)
+
+[房东 整租 精装套房 干净整洁 家电齐全 蚂蚁金服 黄龙国际 支付宝 浙商财富中心  联合大厦附近](https://www.douban.com/group/topic/175717750/)
+
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  网红聚集地 情侣居住首选
+包物业 微信1756828823](https://www.douban.com/group/topic/175813666/)
+
+[拱墅 大悦城旁 庆隆苑朝南带阳台一室一厅 房东直降](https://www.douban.com/group/topic/175745134/)
+
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175774447/)
+
+[大悦城 三宝郡庭 一室一厅 40平 管道煤气 房东直租](https://www.douban.com/group/topic/175251199/)
+
+[翠苑三区 精装一室一厅 天堂软件园 物美 家具家电齐全 拎包入住 随时看房](https://www.douban.com/group/topic/175758028/)
+
+[城西银泰 拱苑小区 一室一厨一卫 价格2100 图片现场实拍 近矩阵国际 黄龙万科 无中介费15906652641微信同步](https://www.douban.com/group/topic/175717178/)
+
+[[非中介]滨江宝龙华盛达旁！精装整租一室3000！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
+
+[城西益乐新村租房](https://www.douban.com/group/topic/175687462/)
+
+[拱墅区 浙大城市学院 万科智谷 一室一卫 包物业3300每月](https://www.douban.com/group/topic/175749172/)
+
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  民用水电 独立厨卫
+丁女士15167180949，中介勿扰](https://www.douban.com/group/topic/175813289/)
+
+[【好房出租】今日嘉园性价比超高一室，文一路附近，翠园小区，学院路地铁站旁，有意者可以联系我：17530344351，【微信同号】](https://www.douban.com/group/topic/175632100/)
+
+[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
+
+[自家房子出租文一路益乐新村一室一卫(独立卫生间)价950元拎包入住丰潭路二号地铁口步行十分钟。微信同步13958003193](https://www.douban.com/group/topic/175740349/)
+
+[求租天堂软件园附近，女生合租或一室一卫，5月中旬可入住](https://www.douban.com/group/topic/175070970/)
+
+[杭州拱墅区大悦城和睦地铁口附近三宝郡庭一室一卫出租2000看房联系A15858851429](https://www.douban.com/group/topic/175593432/)
+
+[求租求租求租](https://www.douban.com/group/topic/175201407/)
+
+[大悦城房源，三宝郡庭一室一厨一卫一餐厅一阳台，卫生间干湿分离价格2200，包网包物业出水电](https://www.douban.com/group/topic/175718486/)
+
+[拱墅近万达，运河上街，瓜山新苑，押一付一房东直租，民用水电，精装公寓，品牌家电，网络齐全，配有公区健身房。](https://www.douban.com/group/topic/172492888/)
+
+[1600可月付合租，钱江世纪城，博地中心，2号线飞虹路地铁站，顺发美哉美城朝南带花园](https://www.douban.com/group/topic/173088150/)
+
+[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175755243/)
+
+[蓝钻天成 单身公寓小套一室 五号线和睦站地铁口 大悦城附近 2000出头秒杀  手慢无](https://www.douban.com/group/topic/175763698/)
+
+[应届毕业生0押金，1300可月付，2号线飞虹路地铁站，钱江世纪城，盈丰路，顺发美哉美城](https://www.douban.com/group/topic/175504557/)
+
+[蓝钻天城小区，地铁和睦站，大悦城附近，拎包入住，包物业，一室一厅一卫，2350元微信18067911710](https://www.douban.com/group/topic/173848222/)
+
+[房东直租 无中介费用  学院路地铁口 一室一厅一卫 公用天然气厨房 价格实在 看房方便 V 同步15868405052](https://www.douban.com/group/topic/175794653/)
+
+[【可短租/长租】无中介费房东直租真实房源，文二西路丰潭路口益乐新村南区，靠2号地铁丰潭站A出口零距离，配套设施齐全拎包入住](https://www.douban.com/group/topic/175455451/)
+
+[古荡新村东/ 精装一室一厅一厨一卫一阳台 白色调，房东去年全新装修/近黄龙 支付宝 丽都会 3000💰](https://www.douban.com/group/topic/175474998/)
+
+[蓝钻天成 一室一厅 网红公寓 45平 特价2000+ 和睦地铁口0距离 大悦城附近 汽车北站 ](https://www.douban.com/group/topic/175683174/)
+
+[地铁2号线中河北路，近浙一浙二邵逸夫，找室友](https://www.douban.com/group/topic/169845599/)
+
+[塘河北村豪华装修一室户转租 靠近大悦城乐堤港](https://www.douban.com/group/topic/175683543/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东47-1-403室，一室一厅一厨一卫一阳台，民用水电，只要3280元，随时看房，](https://www.douban.com/group/topic/175368211/)
+
+[（转租）商住两用酒店式公寓临平地铁口银泰楼上吃喝玩乐行及其方便2600](https://www.douban.com/group/topic/169664186/)
+
+[押一付一 聚丰公寓 一室 黄龙中心 近花都 SOS 古越堂 π吧 德力西 支付宝 天际大厦](https://www.douban.com/group/topic/175366561/)
+
+[丰谭地铁口300米 天堂软件园 嘉绿文苑 一室一厨一卫 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/175383395/)
+
+[翠苑一区 两室合租 隔壁是女孩 翠苑最便宜一室带独立厨卫 价格仅需2100 民用水电 学院路地铁口看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175637735/)
+
+[天堂软件园，中天mcc，大悦城，城西银泰附近，一室一厅一卫一厨，朝南带飘窗，庆隆苑小区，只要2300，包物业，无中介费](https://www.douban.com/group/topic/175363597/)
+
+[滨江，长岛之春朝南侧卧1500](https://www.douban.com/group/topic/175319417/)
+
+[2400/月一室一厨一卫带阳台 1.8大床拎包入住庆隆苑 大悦城天堂软件园步行上班](https://www.douban.com/group/topic/175616603/)
+
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175773597/)
+
+[华元天鹅堡一室一厅一厨一卫
+珀莱雅大厦 ， 浙大玉泉   黄龙  旁，
+环境位置好 ，  性价比高，
+家电齐全拎包入住](https://www.douban.com/group/topic/175198715/)
+
+[教工路地铁附近房子转租，中介勿扰](https://www.douban.com/group/topic/174783631/)
+
+[出租 整租一室一厅 学院路地铁口 天然气民用水电 住宅电梯房](https://www.douban.com/group/topic/175603408/)
+
+[[非中介]滨江宝龙！精装整租一室2900！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
+
+[杭州大悦城旁一室一厅新小区房东直租](https://www.douban.com/group/topic/174833097/)
+
+[转塘 云栖小镇 美院旁 精装一室公寓 一线江景房 特价1800包物业出租 家具家电齐全](https://www.douban.com/group/topic/166952916/)
+
+[【出租】蓝钻天城单身公寓一室 2200年付 民用水电 朝南 近城西银泰 大悦城 楼下就是五号线和睦站 汽车北站 复地壹中心 和睦院](https://www.douban.com/group/topic/175769115/)
+
+[押一付一 天苑花园 精装一室 近星光城 华星时代广场 支付宝 地铁口](https://www.douban.com/group/topic/175092631/)
+
+[文一路学院路，翠苑二区一室一厅，出门公交站，学院路地铁站，靠近物美大卖场，省立同德医院，价格美丽，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175758019/)
+
+[和家园12楼一室一厅一厨一卫直租蚂蚁金服支付宝有赞黄龙阿里巴巴附近](https://www.douban.com/group/topic/173003629/)
+
+[个人房东直租大悦城正对面三宝郡庭朝南一室一厅一厨一卫天然气房子](https://www.douban.com/group/topic/175671283/)
+
+[好房直租！大悦城旁三宝郡庭房东配置豪华装修一室](https://www.douban.com/group/topic/175449433/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+](https://www.douban.com/group/topic/175672773/)
+
+[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
+
+[杭州拱墅区大悦城隔壁大悦城一室一厅出租](https://www.douban.com/group/topic/175683475/)
+
+[西湖区 文一路学院路附近 翠苑二区，一室一厅 价格3600可谈 看房电话15257237595同微信](https://www.douban.com/group/topic/175752029/)
+
+[西湖区益乐新村北区，整租一室一卫，独门独户独卫](https://www.douban.com/group/topic/171372807/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里](https://www.douban.com/group/topic/174524970/)
+
+[【留下-西溪创立方】两人合住，上野双排！近汽车西站，有赞新办公楼，西溪印象城！＃人均月付880，包物业包宽带＃](https://www.douban.com/group/topic/175455681/)
+
+[古荡新村，一室一厅一卫，每月租金1800元](https://www.douban.com/group/topic/173581858/)
+
+[古翠路地铁口，世纪新城一室，落地窗，电梯房，拎包入住，2800每月，看房电话135.6712.0265微信同号](https://www.douban.com/group/topic/174875195/)
+
+[拱墅 大悦城旁 庆隆苑单间 独立厨卫 房东直降](https://www.douban.com/group/topic/175745345/)
+
+[黄龙万科，德力西，快手，学院站，欧美中心，恒励大厦支付宝大厦，多套精装一室可选2500-3600/月15857113890](https://www.douban.com/group/topic/174830415/)
+
+[房东直租出租西湖区益乐新村四楼朝南一室一卫大小都有价800到1300元](https://www.douban.com/group/topic/175434381/)
+
+[【求租】地铁2号线 学院路到金家渡沿线都可，近地铁站，一室一厅一厨一卫](https://www.douban.com/group/topic/175550652/)
+
+[2号线学院路地铁口 黄龙万科中心 德力西九莲新村 华门世家多套精装修一室独立厨卫 看房随时联系:18717816286 微信同号](https://www.douban.com/group/topic/172391584/)
+
+[城西银泰附近找一个合租的小姐姐 房东自住房出租豪华装修](https://www.douban.com/group/topic/169477332/)
+
+[杭州文三路黄龙天苑花园2400/月一室一厨一卫 华星时代 文都苑支付宝黄龙万科](https://www.douban.com/group/topic/175323222/)
+
+[西湖区 枫华府第小区 地铁二号线零距离 新出房源 独立厨卫 一室一厅一厨一卫](https://www.douban.com/group/topic/158654764/)
+
+[【un公社-单身公寓】＃干湿分离 首月半价 押一付一＃近小和山大学城，浙工大对面，东信和创园，西溪印象城！](https://www.douban.com/group/topic/175759928/)
+
+[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
+
+[【西湖黄龙租房】世贸丽晶城精装一室一厅，电梯房，EAC，近黄龙，百脑汇，数源软件园，看房联系：18627856817（同微信】](https://www.douban.com/group/topic/159846512/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫](https://www.douban.com/group/topic/175531580/)
+
+[丰北一苑 两室一厅 60方户型 朝南户型，无任何中介费，飞虹路地铁口，wx联系：ppj19891020（加好友时请备注租房）	](https://www.douban.com/group/topic/174833729/)
+
+[拱墅和睦大悦城对面。都景公寓。一室一厅一卫一厨。房东自住。便宜出租，只要一千八。看房热线。19883131791](https://www.douban.com/group/topic/175309200/)
+
+[转塘 浦沿对面 美院旁 精装公寓 特价1800包物业出租 一线江景房 视野好 环境好 价格优惠 家具家电齐全 全新出租](https://www.douban.com/group/topic/166951770/)
+
+[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
+
+[二号线古翠路地铁附近 世纪新城精装修一室](https://www.douban.com/group/topic/171369074/)
+
+[庆隆苑一室一厅  南北通透  房东直租，无中介费   电话：13588182991](https://www.douban.com/group/topic/175095748/)
+
+[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
+
+[春江彼岸三室出租，价格美丽4757好房不要错过，错过不在有，看房联系13047630883（微信同号）](https://www.douban.com/group/topic/175641013/)
+
+[地铁二号线三墩站 品牌公寓直租 不收中介费 押一付一 可以短租](https://www.douban.com/group/topic/174926097/)
+
+[自家房地铁房无中介费一室一卫1000](https://www.douban.com/group/topic/171808887/)
+
+[阿里园区旁边，房东直租，次卧室带独立卫生间，高端小区万科溪望(无中介费)](https://www.douban.com/group/topic/148911168/)
+
+[https://www.douban.com/doubanapp/dispatch?uri=/group/topic/175309789](https://www.douban.com/group/topic/175638673/)
+
+[国际花园单身公寓，一室一卫厨房，看房提前预约[愉快]特价2000处理，支付宝大楼旁，黄龙商圈13175050712微信同号房东直租，无中介费](https://www.douban.com/group/topic/175661008/)
+
+[西湖黄龙国际花园一室一厨一卫家电齐全 2600/月拎包入住真实图片](https://www.douban.com/group/topic/175086492/)
+
+[西城纪全明一室电梯房出租，房间朝南带大窗，可用空间宽阔，卫生间干湿分离，可做饭，近天堂软件园，随时可看房联系15867056245微信](https://www.douban.com/group/topic/175445083/)
+
+[中大银泰城城市学院精装一室2100三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
+
+[大悦城旁边三宝郡庭一室一厨一卫一阳台一餐厅，特价2200。月付季付都可以。需要的抓紧。手慢无。17605814007微信同号](https://www.douban.com/group/topic/175829227/)
+
+[城西银泰附近居多房源/三宝郡庭全新首次出租，轻奢风格，朝南一室一厅一厨一卫，天然气厨房找一个爱家的你，近大悦城交通便利别问直接私聊看视频](https://www.douban.com/group/topic/175815630/)
+
+[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
+
+[【好房出租】今日嘉园，一室一厅，近学院路站，近御西湖，翠苑，黄龙万科，价格实惠，可月份，看房联系：18712601440（微信同号）](https://www.douban.com/group/topic/175485891/)
+
+[拱墅中大银泰城市学院旁精装一室2100三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
+
+[租客转租，2号线丰潭路古翠路双地铁口，南都银座，一室一厨（管煤）](https://www.douban.com/group/topic/175488203/)
+
+[文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/175775079/)
+
+[西城纪 标准一室一厅 河景房 近天堂软件园 靠近黄龙金茂悦 矩阵国际 联系电话18698577502微信同号	
+	](https://www.douban.com/group/topic/175597765/)
+
+[【好房出租】翠苑一区 标准一室一厅 近学院路地铁口 黄龙万科 行知小学 颐高数码 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/175401385/)
+
+[标题：城西银泰附近，拱苑小区合租单间1300..1400..1700..1800公用燃气厨房   ](https://www.douban.com/group/topic/174513314/)
+
+[黄龙万科中心 数码大厦 一室一厅随时看房](https://www.douban.com/group/topic/175031169/)
+
+[金成花园近丰潭路地铁口 一室一厅一厨一卫 朝南带阳台   民用水电 黄金楼层采光好 可随时入住 配置齐全 可押一付一](https://www.douban.com/group/topic/175771988/)
+
+[大悦城 三宝郡庭 整租61方原户型 一室一厅 小区最低价](https://www.douban.com/group/topic/173159992/)
+
+[定山西苑合租房精装修~~~价格从优](https://www.douban.com/group/topic/173175747/)
+
+[翠苑一区精装标准一室一厅出租，房间客厅朝南，采光好，黄金楼层，带燃气，近学院路地铁站，出行便利，随时可看房，联系15867056245微信](https://www.douban.com/group/topic/175367431/)
+
+[城西银泰附近 大悦城旁 近地铁五号线 西城时代 朝南55方一室一厅一厨一卫 民用水电 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166701290/)
+
+[ 庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2300随时看房
+](https://www.douban.com/group/topic/173077780/)
+
+[二号线学院路地铁口一室整租价格1200，独门独户独卫装修干净家电齐全，拎包入住随时看房，步行100-300米就是地铁口](https://www.douban.com/group/topic/175841746/)
+
+[翠苑一区一室一厅1050精装修拎包入住15906669509](https://www.douban.com/group/topic/175362107/)
+
+[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
+
+[杭州下沙租房 传媒学院附近 元成恒盛公寓 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1300](https://www.douban.com/group/topic/174380048/)
+
+[杭州拱墅区大悦城附近庆隆苑一室一厅租房](https://www.douban.com/group/topic/175679893/)
+
+[【转租 可短租4个月】拱墅区凯德湖墅精装套间，无中介费！性价比超高！](https://www.douban.com/group/topic/174937477/)
+
+[整租！！二号线地铁口 翠苑四区整租一室一厅一厨一卫，民水民电](https://www.douban.com/group/topic/175779001/)
+
+[教工路上华门自由公寓电梯房，一室一厅一卫，大卧室带飘窗采光好，大客厅活动空间大，燃气厨房做饭，附近工商大学，电子科技大学，大悦城购物中心](https://www.douban.com/group/topic/174122118/)
+
+[天堂软件园旁边，庆隆苑精装一室出租。独立厨卫。特温馨](https://www.douban.com/group/topic/172115289/)
+
+[中兴文都苑 朝南 精装一室 独卫 支付宝 黄龙万科 华星时代 近学院路地铁口 华门世家](https://www.douban.com/group/topic/175618732/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东一室一厅，民用水电，只要3280元，随时看房，有意联17600166524微信同号](https://www.douban.com/group/topic/175383587/)
+
+[杭州天河西苑，2室1厅1卫1厨，整租](https://www.douban.com/group/topic/175313181/)
+
+[ 【好房出租】今日嘉园，一室一厅，交通便利，家具齐全，价格实惠。欢迎来电咨询17356518293（VX同号）](https://www.douban.com/group/topic/175311723/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175747753/)
+
+[留下肯德基背后留下古街安乐新村单间直租公交直达有赞蚂蚁金服西溪印象城](https://www.douban.com/group/topic/175505175/)
+
+[ 学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 ](https://www.douban.com/group/topic/175775009/)
+
+[金色蓝庭整租一室一厅一厨一卫原户型 2000+ 天堂软件园上班的小伙伴可以了解下这套房子，上班非常方便。15267118224](https://www.douban.com/group/topic/175746342/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175302820/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175745342/)
+
+[博奥路【地铁口】【房东直租】 找室友1600/月【限女生】](https://www.douban.com/group/topic/173375492/)
+
+[三宝郡庭，整租一室小阳台，独立厨卫，民用水电，大悦城200米，和睦地铁口，拎包入住，随时看房，最低价1900](https://www.douban.com/group/topic/171309010/)
+
+[翠苑二区一室一厅一厨一卫整租 3600/月 付款方式灵活，季付 半年付 年付 可优惠。
+电话/微信：15906655561](https://www.douban.com/group/topic/175701326/)
+
+[文一路教工路今日嘉园，精装修一室一厅，临近学院路站，出门公交站，天然气做饭，价格4000+，看房联系18458872590，同v](https://www.douban.com/group/topic/175599170/)
+
+[【求租+找室友】求合租近江地铁站附近的两室一厅](https://www.douban.com/group/topic/174911349/)
+
+[出租:黄龙体育馆边上零距离朝南带阳台一室一厨一卫，看房联系15857113890](https://www.douban.com/group/topic/175187378/)
+
+[杭州下沙租房 传媒学院附近 东城大厦 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1350](https://www.douban.com/group/topic/174643565/)
+
+[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168244046/)
+
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/175444537/)
+
+[房东降价直租：地铁二号院学院路站翠苑附近中豪晴园独立一室一厅一卫1400元出租，无中介费，独立一户。](https://www.douban.com/group/topic/171440038/)
+
+[【个人急转】月付3000翡翠城翡翠湾均朝南的两室一厅90平大house！近阿里巴巴淘宝城、西溪湿地、华立科技园](https://www.douban.com/group/topic/173710993/)
+
+[丰潭路地铁口，丽都会旁边，嘉绿文苑](https://www.douban.com/group/topic/175487049/)
+
+[黄龙万科中心 中融城市花园 整租一室一卫（独立厨卫）](https://www.douban.com/group/topic/175372525/)
+
+[超低价！拱墅区庆隆苑价格只要2400一室一厅干湿分离 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/175051660/)
+
+[大悦城零距离黄龙打车起步价三宝郡庭朝南一室一厅管道煤气](https://www.douban.com/group/topic/175744234/)
+
+[地铁五号线和睦站大悦城购物中心旁边 三宝郡庭一室一厅一厨一卫加管道天然气 实拍照片](https://www.douban.com/group/topic/175526163/)
+
+[【好房出租】翠苑三区，精装一室，近2号线地铁古翠路站，物美，同德医院，天堂软件园，价格实惠，可月付，看房联系：18712601440（同V）](https://www.douban.com/group/topic/175400364/)
+
+[【找房】西湖区，近支付宝Z空间 整租一室一厅 预算2000-4000](https://www.douban.com/group/topic/175515403/)
+
+[房东直租文三西路紫荆花路口嘉禾花苑精装一室一厨一卫家电齐全](https://www.douban.com/group/topic/168843338/)
+
+[整租：黄龙，阿里中心，蚂蚁金服，浙江大学紫金港，天目山路，标准一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175691923/)
+
+[大悦城周边小区 原户型一室一厅一卫  房子干净清爽  只要2800 近乐提港  远洋国际  和睦地铁口联系15057521259](https://www.douban.com/group/topic/175799922/)
+
+[租客转租 南都银座 无中介费](https://www.douban.com/group/topic/175487516/)
+
+[押一付一  出租 天苑花园 一室一厅  近星光城 华星时代广场 支付宝 黄龙万科  古翠地铁口](https://www.douban.com/group/topic/175372924/)
+
+[莫干山路大悦城附近美都广场一室精装1800，家具家电齐全，原户型！](https://www.douban.com/group/topic/175820858/)
+
+[[留下]精装单身公寓一室一厅一厨一卫可月付近汇峰国际公交直达黄龙](https://www.douban.com/group/topic/175516710/)
+
+[2号地铁线古翠路步行500米 浙江省立同德医院 翠苑四区 一室一厅一厨一卫 整租](https://www.douban.com/group/topic/175350258/)
+
+[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065247/)
+
+[天目山路支付宝隔壁中融城市花园一室一卫2200/月 月付 德力西浙大汇丰现代国际](https://www.douban.com/group/topic/175358735/)
+
+[拱墅区 城市学院 中国铁建国际城 万科智谷 精装一室1500](https://www.douban.com/group/topic/175340951/)
+
+[枫华府第 一室一厅出租 微信～电话 13633009029](https://www.douban.com/group/topic/175455405/)
+
+[『西湖区留下小和山』💰700-1150单间带独卫，月付无中介费，近工业大学和创园研究所汇峰有赞黄龙](https://www.douban.com/group/topic/175279183/)
+
+[房东直租古墩路浙商财富中心蘑菇街对面嘉禾花苑精装一室一厨一卫家电设施齐全](https://www.douban.com/group/topic/169613110/)
+
+[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168420697/)
+
+[大悦城庆隆苑一室朝南有阳台、独立厨卫、干湿分离卫生间、随时看房。17605814007微信同号](https://www.douban.com/group/topic/175794265/)
+
+[之江公寓次卧押一付一](https://www.douban.com/group/topic/136026135/)
+
+[【房东直租】城西嘉禾花苑精装修套房急租可做饭](https://www.douban.com/group/topic/168970405/)
+
+[嘉禾花苑房东出租精装小区房](https://www.douban.com/group/topic/173428760/)
+
+[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
+
+[拱墅区和睦大悦城对面都景公寓。一室一厅一厨一卫，房东自住的。现在出租。价格实惠，只要1800， 给远在他乡的你一个温馨的小家](https://www.douban.com/group/topic/175307762/)
+
+[临近黄龙万科，，文三路上，古荡新村东4，一室一厅一厨一卫一阳台，民用水电，只要3280元，好房不等人，17605814007微信同号](https://www.douban.com/group/topic/175788964/)
+
+[天堂软件园 中天MCC 翠苑逸景湾 精装主卧 直租月付](https://www.douban.com/group/topic/175339540/)
+
+[大悦城旁，三宝郡庭。一室一厅一厨一卫一阳台  价格2399。房东直租押一付一。实拍。](https://www.douban.com/group/topic/175284331/)
+
+[庆隆苑朝南带阳台一室一厅 超级大阳台 卫生间干湿分离 客厅都可做一个房间](https://www.douban.com/group/topic/174207224/)
+
+[大悦城，天堂软件园附近，庆隆苑小区，一室一厅一厨一卫，只要2320元，包物业。17605814007微信同号](https://www.douban.com/group/topic/175788708/)
+
+[2号线丰潭路古翠路双地铁口，西湖国际科技大厦旁，南都银座，一室一厨（管煤）一卫，超大约40m，喜欢的朋友扫码私信我](https://www.douban.com/group/topic/174306682/)
+
+[拱宸桥东，浙江树人大学，浙大城市学院《蔡马人家》精装一室一厅一厨一卫，家电齐全](https://www.douban.com/group/topic/175667879/)
+
+[（个人转租免中介费）临江花园单间独卫大阳台转租](https://www.douban.com/group/topic/173765626/)
+
+[庆隆苑合租一室出租，电梯房，近天堂软件园，地铁5号线2号线，价格实惠，一千出头一点就可租，可以长租，可做饭，看房联系15867056245微](https://www.douban.com/group/topic/174722244/)
+
+[大悦城旁边 美都广场 精装一室一厅 价格1610 价格便宜 随时看房 秒租房 需要看房联系17179799497](https://www.douban.com/group/topic/175822174/)
+
+[蚂蚁金服 浙商财富中心附近 山水人家带阳台卧室和带飘窗次卧 个人出租](https://www.douban.com/group/topic/172782315/)
+
+[西湖区，学院路地铁口翠苑二区一室一厅一厨一卫整租原户型的45平方。家具家电配齐的直租没有中介费诚心租房联系我18768958293](https://www.douban.com/group/topic/174417163/)
+
+[翠苑四区整租一室一厅一厨一卫，民水民电，无中介](https://www.douban.com/group/topic/175613159/)
+
+[城市学院树人大学边精品公寓押一付一独门独户民用水电价格便宜](https://www.douban.com/group/topic/152315298/)
+
+[个人房地铁房一室一卫1000](https://www.douban.com/group/topic/171763768/)
+
+[2号线 学院路 新德雅公寓 独立厨卫 房东急租 免中介月付](https://www.douban.com/group/topic/174944351/)
+
+[拱墅区庆隆苑次卧 独卫朝南单间 房东直租](https://www.douban.com/group/topic/174915853/)
+
+[靠近大悦城，美都一室一厅整套出租，仅需1510包物业，不要中介费](https://www.douban.com/group/topic/175817374/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园【东方福邸】朝南一室一厅，价格美丽](https://www.douban.com/group/topic/175203911/)
+
+[杭州拱墅区庆隆苑高层一室一厅转租](https://www.douban.com/group/topic/175678479/)
+
+[大悦城附近，美都广场便宜一室单身公寓，租金1600包物业，实图实价，速来秒杀。](https://www.douban.com/group/topic/175818209/)
+
+[5号线和睦站地铁口 整租一室一厅公寓 近城西银泰与大悦城 看房联系13456185772](https://www.douban.com/group/topic/175598677/)
+
+[【房屋出租】翠苑一区学院路地铁口精装一室一厅，近黄龙万科，天堂软件园，家电齐全，连包入住，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174429061/)
+
+[求2号线学院路到建国北路附近或5号线西文街到打铁关地铁口附近一室整租房子](https://www.douban.com/group/topic/175050142/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东，一室一厅一厨一卫一阳台，民用水电，随时看房，推荐全佣，好房不等人，有没有要换房子的朋友啊](https://www.douban.com/group/topic/175370523/)
+
+[整租：五号线，二号线，三坝，萍水街，天堂软件园，中天mcc附近，【西城纪】，精装修loft一室一厅，租金：2500/月。☀️](https://www.douban.com/group/topic/175687661/)
+
+[文一路教工路今日嘉园，精装修一室一厅，近地铁，近黄龙，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175299835/)
+
+[学院路地铁站，翠苑一区，朝南主卧，寻找可爱的小伙伴合租啦](https://www.douban.com/group/topic/174968959/)
+
+[紧急转租近2号线古翠路地铁口、支付宝大楼的龙都大厦大一室，朝南大阳台，可做饭](https://www.douban.com/group/topic/174283927/)
+
+[耀江文萃苑 一室一厅 独卫 管道煤气厨房 学院路地铁口 黄龙万科 枫华府第](https://www.douban.com/group/topic/175164851/)
+
+[租客转租 三宝郡庭 一室一厅 带个小餐厅 2700  位置莫干山路上 大悦城旁边 随时看房 13470429965](https://www.douban.com/group/topic/175304802/)
+
+[近黄龙万科文一物美学院春晓45平一室一厅带阳台](https://www.douban.com/group/topic/175620368/)
+
+[求租 西湖区翠苑或附近的房子](https://www.douban.com/group/topic/158345082/)
+
+[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
+
+[（房东直租：主卧带独卫、次卧3）官河锦庭，滨江西兴地铁口500M](https://www.douban.com/group/topic/174252458/)
+
+[城西银泰附近 大悦城旁 庆隆苑 朝南一室一厨一卫带大阳台 价格2700 房间干净清爽 可月付 随时看房](https://www.douban.com/group/topic/171699976/)
+
+[房东出租，天堂软件园，财大旁，近2号线，2000+可短租可月付有电梯](https://www.douban.com/group/topic/175058907/)
+
+[大悦城，黄龙打车起步价【三宝郡庭】朝南一室一厅，卫生间干湿分离，特价只要2300 ，可押一付一       实拍照片，随时看房1585818](https://www.douban.com/group/topic/175614290/)
+
+[西湖黄龙浙大玉泉北门庆丰公寓多套一室2100起 支付宝德力西天际中石油](https://www.douban.com/group/topic/175047651/)
+
+[黄龙零距离  丁香公寓   原户型一室出租房东直租   非诚勿扰  有意联系手机微信同号15158828692](https://www.douban.com/group/topic/174583145/)
+
+[二号线附近，铂澜大象成，耀江文萃苑，一室一厅一卫电梯房，无中介随时看房](https://www.douban.com/group/topic/175761799/)
+
+[（已租）有赞斜对面西湖家园公寓3楼电梯房单间直租，公用厨卫，出门公交直达蚂蚁金服汽车西站支付宝等1200](https://www.douban.com/group/topic/175455492/)
+
+[文三西路紫荆花路古墩路房东出租精装小区房](https://www.douban.com/group/topic/175179642/)
+
+[天堂软件园城西银泰附近 西城纪loft民宿两室一厅出租 押一付一 拎包入住](https://www.douban.com/group/topic/174419183/)
+
+[二号线古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租，租客稳定价格可谈，周边物美，电影院，健身房，看房联系18324429499微信同](https://www.douban.com/group/topic/174958814/)
+
+[个人转租。可以和直接房东续签。二号线学院路一室独卫带厨](https://www.douban.com/group/topic/175158097/)
+
+[地铁5号线和睦站，大悦城附近精装一室，特价出租。](https://www.douban.com/group/topic/174874276/)
+
+[翠苑怡景湾6楼朝南，标准一室一厅！物美大卖场，](https://www.douban.com/group/topic/172891583/)
+
+[近5号线和睦站地铁口，大悦城零距离，三宝郡庭一室一厅出租，房东直租，特价2000多点](https://www.douban.com/group/topic/175595861/)
+
+[房东直租龙湖天玺原户型独卫主卧，近海康、物联网街、信息港](https://www.douban.com/group/topic/174409366/)
+
+[【房屋出租】学院路地铁口枫华府第精装一室，绿城物业，家电齐全，近支付宝，蚂蚁金服，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174635830/)
+
+[翠苑一区朝南主卧2100找室友（可以情侣，可以好友，如果你预算高，单人也可以）](https://www.douban.com/group/topic/175102295/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园，香槟国际朝南一室独立厨卫，特价2300 ！包物业！！      ](https://www.douban.com/group/topic/175140093/)
+
+[庆云居一室一厅一卫一厨  '季度付2300可月付，V：lw1412670385](https://www.douban.com/group/topic/173758842/)
+
+[阿里西溪园区步行5分钟精装朝南北欧风单间](https://www.douban.com/group/topic/175570274/)
+
+[二号线学院路个人转租一室独卫带厨](https://www.douban.com/group/topic/175158334/)
+
+[【中天西城纪】一室一厅2600
+城西银泰旁，中天mcc.天堂软件园.莱茵矩阵，民用水电，包物业15068810656](https://www.douban.com/group/topic/174281089/)
+
+[宋城旁转塘家园朝南内卫带阳台1600](https://www.douban.com/group/topic/175737839/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175870166/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868731/)
+
+[浙大紫金港校区 三墩地铁口100米 转租一套独卫的房子 有共用厨房 随时搬走](https://www.douban.com/group/topic/155496245/)
+
+[房东直租  大悦城三宝郡庭 近天堂软件园乐提港远洋国际黄龙 中天cmc   城西银泰](https://www.douban.com/group/topic/175735615/)
+
+[城西银泰 大悦城 庆隆苑朝南 一室一厅  电梯房 ](https://www.douban.com/group/topic/174570198/)
+
+[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
+
+[曲荷巷，朝南独卫，价格2200，旁边就是黄龙万科，离黄龙时代广场走路也只要几分钟，距离二号线学院路地铁口也不远，近黄龙](https://www.douban.com/group/topic/175758802/)
+
+[黄龙边上 汇丰公寓多套精装一室一厨一卫 朝南带阳台 位于天目山路玉古路口](https://www.douban.com/group/topic/175513576/)
+
+[西城纪精装一室loft，近天堂软件园，城西银泰，，印象城等等，现在年付只要2520包物业，无中介费！](https://www.douban.com/group/topic/175745257/)
+
+[翠苑附近，学院路旁边的，一室一厅一卫出租，天然气厨房。天堂软件园附近](https://www.douban.com/group/topic/172098752/)
+
+[金地悉呈国际社区-阿里黄龙-一室两室超大精装修](https://www.douban.com/group/topic/174031214/)
+
+[整租：拱墅区，浙江大学城市学院附近，石祥路，【万科智谷】，精装修loft一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175220981/)
+
+[二号线学院路站一室出租独门独户独卫价格1200，家电家具齐全，面积大，适合一到两个人入住，](https://www.douban.com/group/topic/175796378/)
+
+[朝南大开间、LOFT长租限时特价！！水网络物业全包1280元起！](https://www.douban.com/group/topic/150227538/)
+
+[黄龙商圈，中融城市花园，天目山路228号，一室独立厨卫，1800](https://www.douban.com/group/topic/175490619/)
+
+[［西湖区·留下·留和路］浙工大边上朝南整租一室，可月付无中介费，近和创园汇峰国际印象城](https://www.douban.com/group/topic/171162998/)
+
+[庆隆苑 一室朝南有阳台 独立厨卫 干湿分离卫生间、随时看房](https://www.douban.com/group/topic/175792005/)
+
+[古翠路地铁旁边 嘉绿苑 一室一厅 便宜出租 房东直租 无中介费](https://www.douban.com/group/topic/174794756/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里 。](https://www.douban.com/group/topic/174605143/)
+
+[整租：西湖区，黄龙体育中心，阿里中心对面，蚂蚁金服附近，天目山路，【古荡新村】，精装修一室一厅，4楼朝南，租金：2800/月。](https://www.douban.com/group/topic/175383768/)
+
+[【房东直租】我是城西益乐新村90后小房东非中介免费看房靠近二号线丰潭路直租一室（一厨）一卫800元起](https://www.douban.com/group/topic/175873696/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868664/)
+
+[翠苑三区一室一厅，精装实用好房找个好租客](https://www.douban.com/group/topic/175074882/)
+
+[房东直租，翠苑三区一室一厅精精精装修好房～](https://www.douban.com/group/topic/175074811/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175869876/)
+
+[房东直租 大悦城正对面三宝郡庭 朝南一室一厅一厨一卫天然气厨房房子](https://www.douban.com/group/topic/174883843/)
+
+[翠苑三区 精装一室一厅 价格实惠 天堂软件园 物美 家具家电齐全 随时看房](https://www.douban.com/group/topic/175957172/)
+
+[【好房出租】世纪新城性价比超高一室一厅，紧挨古翠路地铁站，嘉绿苑，出行方便有意者联系我：17530344351【微信同号】](https://www.douban.com/group/topic/175938152/)
+
+[西湖三墩镇 房租出租](https://www.douban.com/group/topic/175954402/)
+
+[西湖三墩镇五幸家园 房屋出租](https://www.douban.com/group/topic/175954316/)
+
+[【房东直租】龙湖天玺原户型独卫主卧，近海康、聚光中心、江陵路、信息港、吉利](https://www.douban.com/group/topic/175924385/)
+
+[你好租房？](https://www.douban.com/group/topic/175953924/)
+
+[拱墅区和睦大悦城对面都景公寓。房东自住的精装一室一厅一厨一卫，现在出租，只要一千八。价格实惠。看房热线。。19883131791](https://www.douban.com/group/topic/175311435/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175913300/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175891661/)
+
+[金色蓝庭一室整租，天堂软件园旁，文一路与古翠路交叉口，古翠路地铁站近城西银泰配套设施齐全，只要2880，15268750597电话微信同号](https://www.douban.com/group/topic/175903581/)
+
+[翠苑三区，一室整租，古翠路地铁，天堂软件园旁，物美大卖场旁，近城西银泰，配套设施齐全，只要2250，15268750597电话微信](https://www.douban.com/group/topic/175900442/)
+
+[房东直租益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/175944873/)
+
+[黄龙体育馆朝南50方一室一厨一卫 中融、天际大厦黄龙万科支付宝德力西](https://www.douban.com/group/topic/175919433/)
+
+[杭州公馆 精装朝南一室一厅 高端小区 教工路余杭塘路 近大悦城 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175914159/)
+
+[西湖三墩镇五幸家园出租一室一厅一厨一卫](https://www.douban.com/group/topic/175953558/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175105044/)
+
+[【西湖区留下西溪路上】朝南一室带阳台带独卫，可做饭，无中介费，近杨家牌楼珀莱雅汽车西站黄龙支付宝](https://www.douban.com/group/topic/174919368/)
+
+[花园岗小区精装修一室出租，汽车北站，万达广场附近，汽车城，大悦城，和睦地铁。包物业，无中介费，价格便宜1600急租，中介勿扰](https://www.douban.com/group/topic/175899959/)
+
+[学院路地铁口 黄龙万科 枫华府第 整租一室一厅一卫 高层朝南落地窗 无中介费 看房随时](https://www.douban.com/group/topic/174416191/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫](https://www.douban.com/group/topic/175671758/)
+
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/175923823/)
+
+[大悦城 城西银泰 和睦地铁站零距离 蓝钻天成精装标准一室一厅出租](https://www.douban.com/group/topic/175940597/)
+
+[大悦城 城西银泰 和睦地铁站零距离 蓝钻天成精装标准一室一厅出租](https://www.douban.com/group/topic/175940364/)
+
+[拱墅区 城西银泰城 浙大紫金港 朝南大主卧 独立厨卫 全景落地窗 拎包入住](https://www.douban.com/group/topic/168256683/)
+
+[房东直租嘉禾花苑小区房精装1200元拎包入住](https://www.douban.com/group/topic/175947359/)
+
+[中融城市花园 一室一厨一 公卫 黄龙时代广场 华鸿大厦 天际大厦 无中介费](https://www.douban.com/group/topic/175910885/)
+
+[【房东直租】拱墅区庆隆苑单间独立朝南出租](https://www.douban.com/group/topic/174899622/)
+
+[文新地铁站【政新花园】转租](https://www.douban.com/group/topic/175954404/)
+
+[学院路地铁口 华门世家 一室一厅出租 价格便宜 我不会坑你的 微信13633009029](https://www.douban.com/group/topic/175904368/)
+
+[城西银泰附近 大悦城旁 庆隆苑小区 朝南一室一厨一卫带大阳台 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
+
+[文新文溪鼎园(商住楼)距2号线丰潭路地铁站步行1238m
+](https://www.douban.com/group/topic/175938130/)
+
+[西湖区天目山路 黄龙商圈 中融城市花园 一室一厨（独立天然气厨房）公卫](https://www.douban.com/group/topic/175933336/)
+
+[蓝钻天成 一室一厅 网红公寓楼 历史特价房 2200 和睦地铁口0距离 大悦城附近 ](https://www.douban.com/group/topic/175901125/)
+
+[西湖三墩镇出租一室一厅](https://www.douban.com/group/topic/175953425/)
+
+[整租一室一厅一卫单身公寓，可以押一付一，近火车东站三花国际云峰家园](https://www.douban.com/group/topic/171423736/)
+
+[［急求租］  一室一厅一厨一卫  学院路地铁口，华星，黄龙，翠苑，古翠路。5月底入住，预算2600-3000。](https://www.douban.com/group/topic/175881559/)
+
+[江干区～火车东站 地铁口 loft一室一厅 可烧饭 押一付一 没有中介费](https://www.douban.com/group/topic/171423132/)
+
+[大悦城旁一室一厅一厨一卫，拎包入住家电齐全3300/月联系电话13216236686（微信同号）](https://www.douban.com/group/topic/175793731/)
+
+[城西银泰城 浙大紫金港『西城美墅』朝南大主卧 黄金楼层 拎包入住](https://www.douban.com/group/topic/168257057/)
+
+[2号线学院路地铁口，天堂软件园附近，翠苑二区，精装一室一厅，民用水电，管道燃气，直租无中介费。](https://www.douban.com/group/topic/175943234/)
+
+[西湖区转塘（钱塘ONE）高品质loft单身公寓](https://www.douban.com/group/topic/175944433/)
+
+[金田花园一室一厅一厨一卫西城广场 华星时代广场===【金田花园】2250===](https://www.douban.com/group/topic/175904524/)
+
+[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242304/)
+
+[西湖区嘉禾花苑一室一卫有洗衣机空调热水器拎包入住](https://www.douban.com/group/topic/175946942/)
+
+[西湖区古墩路浙商财富中心对面嘉禾花苑拎包入住](https://www.douban.com/group/topic/175946451/)
+
+[🧡🧡🧡非中介，打铁关一站距离，近黄龙武林西湖，45方一室一厅，落地玻璃窗，有厨房可做饭，押一付一](https://www.douban.com/group/topic/170501634/)
+
+[【拱墅区-找室友】*【浙大城市学院周边】- 拱宸桥东地铁站附近也可](https://www.douban.com/group/topic/175932755/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175748637/)
+
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175958582/)
+
+[情侣租房，求地铁站三坝到学院路中的房子，离地铁站近，一室一厅一厨一卫，预算在3000以内的，预计5月底搬6月初搬，联系15088675415](https://www.douban.com/group/topic/175658150/)
+
+[【求租】黄龙、翠苑附近，一室独卫预算2500内](https://www.douban.com/group/topic/175911433/)
+
+[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
+
+[中豪晴园，一室一厅一卫一厨，精装修，靠近学院路地铁站，1550](https://www.douban.com/group/topic/175913082/)
+
+[下沙 云水 海天城 租房 1000，第一个月可付800](https://www.douban.com/group/topic/175922295/)
+
+[【Line 1/定安路地铁口】两室一厅  设计师好房直租 ！！ ](https://www.douban.com/group/topic/166732903/)
+
+[有房出租](https://www.douban.com/group/topic/173873590/)
+
+[五洲国际loft整租一室一厅，楼下超市，小吃街好吃不贵，旁边印象城，城西银泰，天堂软件园，步走到地铁文新站5分钟[调皮]](https://www.douban.com/group/topic/175310014/)
+
+[2400/月一室一厨一卫带阳台 1.8大床拎包入住庆隆苑 大悦城天堂软件园步行上班](https://www.douban.com/group/topic/175616565/)
+
+[杭州下沙租房 传媒学院附近 东城大厦 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1350](https://www.douban.com/group/topic/174642548/)
+
+[【求租】要求：黄龙、翠苑附近，一室独卫](https://www.douban.com/group/topic/175911327/)
+
+[三宝郡庭，出租，大悦城正对面，朝南一室一厅一厨一卫，天然气厨房，找一个爱家的你。17605814007微信同号](https://www.douban.com/group/topic/175900767/)
+
+[【出租】发展今日嘉园 一室整租 2400 民用水电 带天然气做饭 文一路教工路近黄龙体育中心 学院路地铁 中豪晴园 银马公寓 翠苑一区 古荡](https://www.douban.com/group/topic/175959472/)
+
+[【房东直租】我是城西益乐新村90后小房东非中介免费看房靠近二号线丰潭路直租一室（一厨）一卫800元起](https://www.douban.com/group/topic/175885065/)
+
+[2号线学院路地铁口300米  精装一室一厅 带阳台  价格实惠  随时看房 入住随时 看房联系。17605814007微信同号](https://www.douban.com/group/topic/175314184/)
+
+[汽车北站  学院府一室一厅一卫一阳台特价2580出租](https://www.douban.com/group/topic/175644280/)
+
+[文二路与丰潭路旁边，一室朝南独卫，价格2400，嘉绿西苑。西湖国际大厦，地铁口](https://www.douban.com/group/topic/173091972/)
+
+[天堂软件园正对面 一室单身公寓 价格2900包物业，有没有要的，有没有要的。](https://www.douban.com/group/topic/175640165/)
+
+[东站租房 1/4号线 彭埠地铁口 花园府 朝南主卧带阳台飘窗 房东直租 2200一月 看房热线17006428325同微](https://www.douban.com/group/topic/175886733/)
+
+[城西银泰附近求租](https://www.douban.com/group/topic/175885397/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175870461/)
+
+[[非中介]西兴地铁口 鑫都汇！整租一室大开间！朝南，独立厨卫！](https://www.douban.com/group/topic/174445010/)
+
+[学院路地铁口附近，新德雅公寓精装一室出租，带管道燃气厨房。](https://www.douban.com/group/topic/174411946/)
+
+[庆隆苑 大悦城 天堂软件园 精装一室独立厨卫 燃气厨房 特惠只要2180！ 错过再没有！](https://www.douban.com/group/topic/175862643/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175818132/)
+
+[房东直租！西湖文化广场省人民医院 零距离 一室一厨一卫带阳台 精品公寓 2300家电齐全！可做饭 、无中介费](https://www.douban.com/group/topic/174882641/)
+
+[城西银泰，矩阵国际 天堂软件园，中天mcc附近公寓中天西城纪一室一厅无中介出租](https://www.douban.com/group/topic/169103735/)
+
+[三宝郡庭 大悦城0距离 天堂软件园边 精装一室一厅燃气厨房 特惠仅需3280月](https://www.douban.com/group/topic/175860458/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175744809/)
+
+[申花板块 城西银泰  2-5号地铁沿线 三墩 三坝 萍水街等 多套单间合租 整租一室等出租 月付季付 微15988820069](https://www.douban.com/group/topic/175575190/)
+
+[翠苑三区精装一室一厅，家具齐全，附近交通便捷，地段好临近物美，看房联系电话15700183890，微信同号。](https://www.douban.com/group/topic/175817237/)
+
+[房东直租，益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/175856401/)
+
+[转塘 云栖小镇附近 美院旁 精装单身公寓 特价1800包物业出租 视野好 环境好 钱塘one小区 拎包入住](https://www.douban.com/group/topic/166950207/)
+
+[租客转租房租已经空置、随时可看、大悦城旁边庆隆苑一室一厅标准户型3100季度付。需要的抓紧。手慢无。47605814007微信同号](https://www.douban.com/group/topic/175861204/)
+
+[翠苑三区 一室一厅 黄金楼层 精装修 近文一路学院路 走路10分钟到学院路二号线站，联系电话18698577502](https://www.douban.com/group/topic/175855198/)
+
+[转塘 精装loft一室一厅公寓 拎包入住 价格便宜](https://www.douban.com/group/topic/166950961/)
+
+[翠苑二区精装一室一厅房间朝南厅朝南 价格实惠看房方便 翠苑公交站 物美超市 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175803301/)
+
+[出租 三宝郡庭 精装一室一厅 近黄龙  大悦城隔壁  美都广场 西城时代 庆隆苑 ](https://www.douban.com/group/topic/175776022/)
+
+[学院路地铁口附近，新德雅公寓精装一室出租，带管道燃气厨房。](https://www.douban.com/group/topic/174412137/)
+
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175791657/)
+
+[【房东直租】拱墅区庆隆苑 次卧独卫朝南单间](https://www.douban.com/group/topic/175118945/)
+
+[房东 整租 精装套房 干净整洁 家电齐全 蚂蚁金服 黄龙国际 支付宝 浙商财富中心  联合大厦附近](https://www.douban.com/group/topic/175717750/)
+
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  网红聚集地 情侣居住首选
+包物业 微信1756828823](https://www.douban.com/group/topic/175813666/)
+
+[拱墅 大悦城旁 庆隆苑朝南带阳台一室一厅 房东直降](https://www.douban.com/group/topic/175745134/)
+
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175774447/)
+
+[大悦城 三宝郡庭 一室一厅 40平 管道煤气 房东直租](https://www.douban.com/group/topic/175251199/)
+
+[翠苑三区 精装一室一厅 天堂软件园 物美 家具家电齐全 拎包入住 随时看房](https://www.douban.com/group/topic/175758028/)
+
+[城西银泰 拱苑小区 一室一厨一卫 价格2100 图片现场实拍 近矩阵国际 黄龙万科 无中介费15906652641微信同步](https://www.douban.com/group/topic/175717178/)
+
+[[非中介]滨江宝龙华盛达旁！精装整租一室3000！阳台！独立厨卫！近华业大厦，优迈科技园](https://www.douban.com/group/topic/168476421/)
+
+[城西益乐新村租房](https://www.douban.com/group/topic/175687462/)
+
+[拱墅区 浙大城市学院 万科智谷 一室一卫 包物业3300每月](https://www.douban.com/group/topic/175749172/)
+
+[和睦地铁口 蓝钻天成 朝南一室2150 近大悦城 汽车北站  民用水电 独立厨卫
+丁女士15167180949，中介勿扰](https://www.douban.com/group/topic/175813289/)
+
+[【好房出租】今日嘉园性价比超高一室，文一路附近，翠园小区，学院路地铁站旁，有意者可以联系我：17530344351，【微信同号】](https://www.douban.com/group/topic/175632100/)
+
+[【限时日租40元】拎包入住 杭州东站小年轻 温馨床位合租](https://www.douban.com/group/topic/127923379/)
+
+[自家房子出租文一路益乐新村一室一卫(独立卫生间)价950元拎包入住丰潭路二号地铁口步行十分钟。微信同步13958003193](https://www.douban.com/group/topic/175740349/)
+
+[求租天堂软件园附近，女生合租或一室一卫，5月中旬可入住](https://www.douban.com/group/topic/175070970/)
+
+[杭州拱墅区大悦城和睦地铁口附近三宝郡庭一室一卫出租2000看房联系A15858851429](https://www.douban.com/group/topic/175593432/)
+
+[求租求租求租](https://www.douban.com/group/topic/175201407/)
+
+[大悦城房源，三宝郡庭一室一厨一卫一餐厅一阳台，卫生间干湿分离价格2200，包网包物业出水电](https://www.douban.com/group/topic/175718486/)
+
+[拱墅近万达，运河上街，瓜山新苑，押一付一房东直租，民用水电，精装公寓，品牌家电，网络齐全，配有公区健身房。](https://www.douban.com/group/topic/172492888/)
+
+[1600可月付合租，钱江世纪城，博地中心，2号线飞虹路地铁站，顺发美哉美城朝南带花园](https://www.douban.com/group/topic/173088150/)
+
+[丰谭地铁口100米 天堂软件园 南都银座 一室一厨一卫朝南（管煤）房东直租 可月付](https://www.douban.com/group/topic/162438480/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175755243/)
+
+[蓝钻天成 单身公寓小套一室 五号线和睦站地铁口 大悦城附近 2000出头秒杀  手慢无](https://www.douban.com/group/topic/175763698/)
+
+[应届毕业生0押金，1300可月付，2号线飞虹路地铁站，钱江世纪城，盈丰路，顺发美哉美城](https://www.douban.com/group/topic/175504557/)
+
+[蓝钻天城小区，地铁和睦站，大悦城附近，拎包入住，包物业，一室一厅一卫，2350元微信18067911710](https://www.douban.com/group/topic/173848222/)
+
+[房东直租 无中介费用  学院路地铁口 一室一厅一卫 公用天然气厨房 价格实在 看房方便 V 同步15868405052](https://www.douban.com/group/topic/175794653/)
+
+[【可短租/长租】无中介费房东直租真实房源，文二西路丰潭路口益乐新村南区，靠2号地铁丰潭站A出口零距离，配套设施齐全拎包入住](https://www.douban.com/group/topic/175455451/)
+
+[古荡新村东/ 精装一室一厅一厨一卫一阳台 白色调，房东去年全新装修/近黄龙 支付宝 丽都会 3000💰](https://www.douban.com/group/topic/175474998/)
+
+[蓝钻天成 一室一厅 网红公寓 45平 特价2000+ 和睦地铁口0距离 大悦城附近 汽车北站 ](https://www.douban.com/group/topic/175683174/)
+
+[地铁2号线中河北路，近浙一浙二邵逸夫，找室友](https://www.douban.com/group/topic/169845599/)
+
+[塘河北村豪华装修一室户转租 靠近大悦城乐堤港](https://www.douban.com/group/topic/175683543/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东47-1-403室，一室一厅一厨一卫一阳台，民用水电，只要3280元，随时看房，](https://www.douban.com/group/topic/175368211/)
+
+[（转租）商住两用酒店式公寓临平地铁口银泰楼上吃喝玩乐行及其方便2600](https://www.douban.com/group/topic/169664186/)
+
+[押一付一 聚丰公寓 一室 黄龙中心 近花都 SOS 古越堂 π吧 德力西 支付宝 天际大厦](https://www.douban.com/group/topic/175366561/)
+
+[丰谭地铁口300米 天堂软件园 嘉绿文苑 一室一厨一卫 房东直租 无中介费 同微信19906549316](https://www.douban.com/group/topic/175383395/)
+
+[翠苑一区 两室合租 隔壁是女孩 翠苑最便宜一室带独立厨卫 价格仅需2100 民用水电 学院路地铁口看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175637735/)
+
+[天堂软件园，中天mcc，大悦城，城西银泰附近，一室一厅一卫一厨，朝南带飘窗，庆隆苑小区，只要2300，包物业，无中介费](https://www.douban.com/group/topic/175363597/)
+
+[滨江，长岛之春朝南侧卧1500](https://www.douban.com/group/topic/175319417/)
+
+[2400/月一室一厨一卫带阳台 1.8大床拎包入住庆隆苑 大悦城天堂软件园步行上班](https://www.douban.com/group/topic/175616603/)
+
+[汽车北站 花园岗公寓 一室带阳台1400 复地壹中心 月星家居对面 融信学院府 雍容华庭 民用水电包物业](https://www.douban.com/group/topic/175773597/)
+
+[华元天鹅堡一室一厅一厨一卫
+珀莱雅大厦 ， 浙大玉泉   黄龙  旁，
+环境位置好 ，  性价比高，
+家电齐全拎包入住](https://www.douban.com/group/topic/175198715/)
+
+[教工路地铁附近房子转租，中介勿扰](https://www.douban.com/group/topic/174783631/)
+
+[出租 整租一室一厅 学院路地铁口 天然气民用水电 住宅电梯房](https://www.douban.com/group/topic/175603408/)
+
+[[非中介]滨江宝龙！精装整租一室2900！独立厨卫！近大华，网易，正泰！联庄地铁](https://www.douban.com/group/topic/159943644/)
+
+[杭州大悦城旁一室一厅新小区房东直租](https://www.douban.com/group/topic/174833097/)
+
+[转塘 云栖小镇 美院旁 精装一室公寓 一线江景房 特价1800包物业出租 家具家电齐全](https://www.douban.com/group/topic/166952916/)
+
+[【出租】蓝钻天城单身公寓一室 2200年付 民用水电 朝南 近城西银泰 大悦城 楼下就是五号线和睦站 汽车北站 复地壹中心 和睦院](https://www.douban.com/group/topic/175769115/)
+
+[押一付一 天苑花园 精装一室 近星光城 华星时代广场 支付宝 地铁口](https://www.douban.com/group/topic/175092631/)
+
+[文一路学院路，翠苑二区一室一厅，出门公交站，学院路地铁站，靠近物美大卖场，省立同德医院，价格美丽，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175758019/)
+
+[和家园12楼一室一厅一厨一卫直租蚂蚁金服支付宝有赞黄龙阿里巴巴附近](https://www.douban.com/group/topic/173003629/)
+
+[个人房东直租大悦城正对面三宝郡庭朝南一室一厅一厨一卫天然气房子](https://www.douban.com/group/topic/175671283/)
+
+[好房直租！大悦城旁三宝郡庭房东配置豪华装修一室](https://www.douban.com/group/topic/175449433/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫	
+](https://www.douban.com/group/topic/175672773/)
+
+[拱墅区 虾龙圩地铁口500米『西城美熟』朝南大主卧 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253211/)
+
+[杭州拱墅区大悦城隔壁大悦城一室一厅出租](https://www.douban.com/group/topic/175683475/)
+
+[西湖区 文一路学院路附近 翠苑二区，一室一厅 价格3600可谈 看房电话15257237595同微信](https://www.douban.com/group/topic/175752029/)
+
+[西湖区益乐新村北区，整租一室一卫，独门独户独卫](https://www.douban.com/group/topic/171372807/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里](https://www.douban.com/group/topic/174524970/)
+
+[【留下-西溪创立方】两人合住，上野双排！近汽车西站，有赞新办公楼，西溪印象城！＃人均月付880，包物业包宽带＃](https://www.douban.com/group/topic/175455681/)
+
+[古荡新村，一室一厅一卫，每月租金1800元](https://www.douban.com/group/topic/173581858/)
+
+[古翠路地铁口，世纪新城一室，落地窗，电梯房，拎包入住，2800每月，看房电话135.6712.0265微信同号](https://www.douban.com/group/topic/174875195/)
+
+[拱墅 大悦城旁 庆隆苑单间 独立厨卫 房东直降](https://www.douban.com/group/topic/175745345/)
+
+[黄龙万科，德力西，快手，学院站，欧美中心，恒励大厦支付宝大厦，多套精装一室可选2500-3600/月15857113890](https://www.douban.com/group/topic/174830415/)
+
+[房东直租出租西湖区益乐新村四楼朝南一室一卫大小都有价800到1300元](https://www.douban.com/group/topic/175434381/)
+
+[【求租】地铁2号线 学院路到金家渡沿线都可，近地铁站，一室一厅一厨一卫](https://www.douban.com/group/topic/175550652/)
+
+[2号线学院路地铁口 黄龙万科中心 德力西九莲新村 华门世家多套精装修一室独立厨卫 看房随时联系:18717816286 微信同号](https://www.douban.com/group/topic/172391584/)
+
+[城西银泰附近找一个合租的小姐姐 房东自住房出租豪华装修](https://www.douban.com/group/topic/169477332/)
+
+[杭州文三路黄龙天苑花园2400/月一室一厨一卫 华星时代 文都苑支付宝黄龙万科](https://www.douban.com/group/topic/175323222/)
+
+[西湖区 枫华府第小区 地铁二号线零距离 新出房源 独立厨卫 一室一厅一厨一卫](https://www.douban.com/group/topic/158654764/)
+
+[【un公社-单身公寓】＃干湿分离 首月半价 押一付一＃近小和山大学城，浙工大对面，东信和创园，西溪印象城！](https://www.douban.com/group/topic/175759928/)
+
+[拱墅区 浙大紫金港 城西银泰对面『西城没熟』朝南大主卧招租 独立厨卫 全景落地窗](https://www.douban.com/group/topic/168253960/)
+
+[【西湖黄龙租房】世贸丽晶城精装一室一厅，电梯房，EAC，近黄龙，百脑汇，数源软件园，看房联系：18627856817（同微信】](https://www.douban.com/group/topic/159846512/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫](https://www.douban.com/group/topic/175531580/)
+
+[丰北一苑 两室一厅 60方户型 朝南户型，无任何中介费，飞虹路地铁口，wx联系：ppj19891020（加好友时请备注租房）	](https://www.douban.com/group/topic/174833729/)
+
+[拱墅和睦大悦城对面。都景公寓。一室一厅一卫一厨。房东自住。便宜出租，只要一千八。看房热线。19883131791](https://www.douban.com/group/topic/175309200/)
+
+[转塘 浦沿对面 美院旁 精装公寓 特价1800包物业出租 一线江景房 视野好 环境好 价格优惠 家具家电齐全 全新出租](https://www.douban.com/group/topic/166951770/)
+
+[转塘 之江大桥 美院旁 钱塘one loft一室公寓 家具家电齐全 拎包入住 价格便宜](https://www.douban.com/group/topic/166952212/)
+
+[二号线古翠路地铁附近 世纪新城精装修一室](https://www.douban.com/group/topic/171369074/)
+
+[庆隆苑一室一厅  南北通透  房东直租，无中介费   电话：13588182991](https://www.douban.com/group/topic/175095748/)
+
+[三宝郡庭一室一厅大悦城 乐堤港](https://www.douban.com/group/topic/153228752/)
+
+[春江彼岸三室出租，价格美丽4757好房不要错过，错过不在有，看房联系13047630883（微信同号）](https://www.douban.com/group/topic/175641013/)
+
+[地铁二号线三墩站 品牌公寓直租 不收中介费 押一付一 可以短租](https://www.douban.com/group/topic/174926097/)
+
+[自家房地铁房无中介费一室一卫1000](https://www.douban.com/group/topic/171808887/)
+
+[阿里园区旁边，房东直租，次卧室带独立卫生间，高端小区万科溪望(无中介费)](https://www.douban.com/group/topic/148911168/)
+
+[https://www.douban.com/doubanapp/dispatch?uri=/group/topic/175309789](https://www.douban.com/group/topic/175638673/)
+
+[国际花园单身公寓，一室一卫厨房，看房提前预约[愉快]特价2000处理，支付宝大楼旁，黄龙商圈13175050712微信同号房东直租，无中介费](https://www.douban.com/group/topic/175661008/)
+
+[西湖黄龙国际花园一室一厨一卫家电齐全 2600/月拎包入住真实图片](https://www.douban.com/group/topic/175086492/)
+
+[西城纪全明一室电梯房出租，房间朝南带大窗，可用空间宽阔，卫生间干湿分离，可做饭，近天堂软件园，随时可看房联系15867056245微信](https://www.douban.com/group/topic/175445083/)
+
+[中大银泰城城市学院精装一室2100三室3200可短租月付非中介](https://www.douban.com/group/topic/157852767/)
+
+[大悦城旁边三宝郡庭一室一厨一卫一阳台一餐厅，特价2200。月付季付都可以。需要的抓紧。手慢无。17605814007微信同号](https://www.douban.com/group/topic/175829227/)
+
+[城西银泰附近居多房源/三宝郡庭全新首次出租，轻奢风格，朝南一室一厅一厨一卫，天然气厨房找一个爱家的你，近大悦城交通便利别问直接私聊看视频](https://www.douban.com/group/topic/175815630/)
+
+[拱墅中大银泰城城市学院旁精装三室两厅loft可短租1-3个月3000包物业宽带非中介](https://www.douban.com/group/topic/159275187/)
+
+[【好房出租】今日嘉园，一室一厅，近学院路站，近御西湖，翠苑，黄龙万科，价格实惠，可月份，看房联系：18712601440（微信同号）](https://www.douban.com/group/topic/175485891/)
+
+[拱墅中大银泰城市学院旁精装一室2100三室2999可短租押一付一非中介](https://www.douban.com/group/topic/159765737/)
+
+[租客转租，2号线丰潭路古翠路双地铁口，南都银座，一室一厨（管煤）](https://www.douban.com/group/topic/175488203/)
+
+[文三路益乐路口 和悦公寓多套一室一厨一卫 天然气厨房 精装电梯房](https://www.douban.com/group/topic/175775079/)
+
+[西城纪 标准一室一厅 河景房 近天堂软件园 靠近黄龙金茂悦 矩阵国际 联系电话18698577502微信同号	
+	](https://www.douban.com/group/topic/175597765/)
+
+[【好房出租】翠苑一区 标准一室一厅 近学院路地铁口 黄龙万科 行知小学 颐高数码 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/175401385/)
+
+[标题：城西银泰附近，拱苑小区合租单间1300..1400..1700..1800公用燃气厨房   ](https://www.douban.com/group/topic/174513314/)
+
+[黄龙万科中心 数码大厦 一室一厅随时看房](https://www.douban.com/group/topic/175031169/)
+
+[金成花园近丰潭路地铁口 一室一厅一厨一卫 朝南带阳台   民用水电 黄金楼层采光好 可随时入住 配置齐全 可押一付一](https://www.douban.com/group/topic/175771988/)
+
+[大悦城 三宝郡庭 整租61方原户型 一室一厅 小区最低价](https://www.douban.com/group/topic/173159992/)
+
+[定山西苑合租房精装修~~~价格从优](https://www.douban.com/group/topic/173175747/)
+
+[翠苑一区精装标准一室一厅出租，房间客厅朝南，采光好，黄金楼层，带燃气，近学院路地铁站，出行便利，随时可看房，联系15867056245微信](https://www.douban.com/group/topic/175367431/)
+
+[城西银泰附近 大悦城旁 近地铁五号线 西城时代 朝南55方一室一厅一厨一卫 民用水电 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166701290/)
+
+[ 庆隆苑，新空出，朝南一室，单间，独立厨卫，欧式风格2300随时看房
+](https://www.douban.com/group/topic/173077780/)
+
+[二号线学院路地铁口一室整租价格1200，独门独户独卫装修干净家电齐全，拎包入住随时看房，步行100-300米就是地铁口](https://www.douban.com/group/topic/175841746/)
+
+[翠苑一区一室一厅1050精装修拎包入住15906669509](https://www.douban.com/group/topic/175362107/)
+
+[拱墅区 城西银泰 浙大紫金港 朝南大主卧 独立厨卫 黄金楼层 拎包入住](https://www.douban.com/group/topic/168254169/)
+
+[杭州下沙租房 传媒学院附近 元成恒盛公寓 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1300](https://www.douban.com/group/topic/174380048/)
+
+[杭州拱墅区大悦城附近庆隆苑一室一厅租房](https://www.douban.com/group/topic/175679893/)
+
+[【转租 可短租4个月】拱墅区凯德湖墅精装套间，无中介费！性价比超高！](https://www.douban.com/group/topic/174937477/)
+
+[整租！！二号线地铁口 翠苑四区整租一室一厅一厨一卫，民水民电](https://www.douban.com/group/topic/175779001/)
+
+[教工路上华门自由公寓电梯房，一室一厅一卫，大卧室带飘窗采光好，大客厅活动空间大，燃气厨房做饭，附近工商大学，电子科技大学，大悦城购物中心](https://www.douban.com/group/topic/174122118/)
+
+[天堂软件园旁边，庆隆苑精装一室出租。独立厨卫。特温馨](https://www.douban.com/group/topic/172115289/)
+
+[中兴文都苑 朝南 精装一室 独卫 支付宝 黄龙万科 华星时代 近学院路地铁口 华门世家](https://www.douban.com/group/topic/175618732/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东一室一厅，民用水电，只要3280元，随时看房，有意联17600166524微信同号](https://www.douban.com/group/topic/175383587/)
+
+[杭州天河西苑，2室1厅1卫1厨，整租](https://www.douban.com/group/topic/175313181/)
+
+[ 【好房出租】今日嘉园，一室一厅，交通便利，家具齐全，价格实惠。欢迎来电咨询17356518293（VX同号）](https://www.douban.com/group/topic/175311723/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175747753/)
+
+[留下肯德基背后留下古街安乐新村单间直租公交直达有赞蚂蚁金服西溪印象城](https://www.douban.com/group/topic/175505175/)
+
+[ 学院路余杭塘路口庆隆苑三区 精装一室一厅一厨一卫  管道煤气厨房 ](https://www.douban.com/group/topic/175775009/)
+
+[金色蓝庭整租一室一厅一厨一卫原户型 2000+ 天堂软件园上班的小伙伴可以了解下这套房子，上班非常方便。15267118224](https://www.douban.com/group/topic/175746342/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175302820/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175745342/)
+
+[博奥路【地铁口】【房东直租】 找室友1600/月【限女生】](https://www.douban.com/group/topic/173375492/)
+
+[三宝郡庭，整租一室小阳台，独立厨卫，民用水电，大悦城200米，和睦地铁口，拎包入住，随时看房，最低价1900](https://www.douban.com/group/topic/171309010/)
+
+[翠苑二区一室一厅一厨一卫整租 3600/月 付款方式灵活，季付 半年付 年付 可优惠。
+电话/微信：15906655561](https://www.douban.com/group/topic/175701326/)
+
+[文一路教工路今日嘉园，精装修一室一厅，临近学院路站，出门公交站，天然气做饭，价格4000+，看房联系18458872590，同v](https://www.douban.com/group/topic/175599170/)
+
+[【求租+找室友】求合租近江地铁站附近的两室一厅](https://www.douban.com/group/topic/174911349/)
+
+[出租:黄龙体育馆边上零距离朝南带阳台一室一厨一卫，看房联系15857113890](https://www.douban.com/group/topic/175187378/)
+
+[杭州下沙租房 传媒学院附近 东城大厦 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1350](https://www.douban.com/group/topic/174643565/)
+
+[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168244046/)
+
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/175444537/)
+
+[房东降价直租：地铁二号院学院路站翠苑附近中豪晴园独立一室一厅一卫1400元出租，无中介费，独立一户。](https://www.douban.com/group/topic/171440038/)
+
+[【个人急转】月付3000翡翠城翡翠湾均朝南的两室一厅90平大house！近阿里巴巴淘宝城、西溪湿地、华立科技园](https://www.douban.com/group/topic/173710993/)
+
+[丰潭路地铁口，丽都会旁边，嘉绿文苑](https://www.douban.com/group/topic/175487049/)
+
+[黄龙万科中心 中融城市花园 整租一室一卫（独立厨卫）](https://www.douban.com/group/topic/175372525/)
+
+[超低价！拱墅区庆隆苑价格只要2400一室一厅干湿分离 随时看房天堂软件园 大悦城周边](https://www.douban.com/group/topic/175051660/)
+
+[大悦城零距离黄龙打车起步价三宝郡庭朝南一室一厅管道煤气](https://www.douban.com/group/topic/175744234/)
+
+[地铁五号线和睦站大悦城购物中心旁边 三宝郡庭一室一厅一厨一卫加管道天然气 实拍照片](https://www.douban.com/group/topic/175526163/)
+
+[【好房出租】翠苑三区，精装一室，近2号线地铁古翠路站，物美，同德医院，天堂软件园，价格实惠，可月付，看房联系：18712601440（同V）](https://www.douban.com/group/topic/175400364/)
+
+[【找房】西湖区，近支付宝Z空间 整租一室一厅 预算2000-4000](https://www.douban.com/group/topic/175515403/)
+
+[房东直租文三西路紫荆花路口嘉禾花苑精装一室一厨一卫家电齐全](https://www.douban.com/group/topic/168843338/)
+
+[整租：黄龙，阿里中心，蚂蚁金服，浙江大学紫金港，天目山路，标准一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175691923/)
+
+[大悦城周边小区 原户型一室一厅一卫  房子干净清爽  只要2800 近乐提港  远洋国际  和睦地铁口联系15057521259](https://www.douban.com/group/topic/175799922/)
+
+[租客转租 南都银座 无中介费](https://www.douban.com/group/topic/175487516/)
+
+[押一付一  出租 天苑花园 一室一厅  近星光城 华星时代广场 支付宝 黄龙万科  古翠地铁口](https://www.douban.com/group/topic/175372924/)
+
+[莫干山路大悦城附近美都广场一室精装1800，家具家电齐全，原户型！](https://www.douban.com/group/topic/175820858/)
+
+[[留下]精装单身公寓一室一厅一厨一卫可月付近汇峰国际公交直达黄龙](https://www.douban.com/group/topic/175516710/)
+
+[2号地铁线古翠路步行500米 浙江省立同德医院 翠苑四区 一室一厅一厨一卫 整租](https://www.douban.com/group/topic/175350258/)
+
+[文二路 学院路 枫华府第 一室一厅 高端小区](https://www.douban.com/group/topic/167065247/)
+
+[天目山路支付宝隔壁中融城市花园一室一卫2200/月 月付 德力西浙大汇丰现代国际](https://www.douban.com/group/topic/175358735/)
+
+[拱墅区 城市学院 中国铁建国际城 万科智谷 精装一室1500](https://www.douban.com/group/topic/175340951/)
+
+[枫华府第 一室一厅出租 微信～电话 13633009029](https://www.douban.com/group/topic/175455405/)
+
+[『西湖区留下小和山』💰700-1150单间带独卫，月付无中介费，近工业大学和创园研究所汇峰有赞黄龙](https://www.douban.com/group/topic/175279183/)
+
+[房东直租古墩路浙商财富中心蘑菇街对面嘉禾花苑精装一室一厨一卫家电设施齐全](https://www.douban.com/group/topic/169613110/)
+
+[古翠路地铁站 翠苑房东直租  整租 一室一厅一厨一卫一阳台 无中介费](https://www.douban.com/group/topic/168420697/)
+
+[大悦城庆隆苑一室朝南有阳台、独立厨卫、干湿分离卫生间、随时看房。17605814007微信同号](https://www.douban.com/group/topic/175794265/)
+
+[之江公寓次卧押一付一](https://www.douban.com/group/topic/136026135/)
+
+[【房东直租】城西嘉禾花苑精装修套房急租可做饭](https://www.douban.com/group/topic/168970405/)
+
+[嘉禾花苑房东出租精装小区房](https://www.douban.com/group/topic/173428760/)
+
+[房东直租～自己的房子～2号线丰潭路地铁站旁，蘑菇街浙商财富中心，蚂蚁金服附近，五联东苑大小单间，900-1900不等，随时看房！](https://www.douban.com/group/topic/142221476/)
+
+[拱墅区和睦大悦城对面都景公寓。一室一厅一厨一卫，房东自住的。现在出租。价格实惠，只要1800， 给远在他乡的你一个温馨的小家](https://www.douban.com/group/topic/175307762/)
+
+[临近黄龙万科，，文三路上，古荡新村东4，一室一厅一厨一卫一阳台，民用水电，只要3280元，好房不等人，17605814007微信同号](https://www.douban.com/group/topic/175788964/)
+
+[天堂软件园 中天MCC 翠苑逸景湾 精装主卧 直租月付](https://www.douban.com/group/topic/175339540/)
+
+[大悦城旁，三宝郡庭。一室一厅一厨一卫一阳台  价格2399。房东直租押一付一。实拍。](https://www.douban.com/group/topic/175284331/)
+
+[庆隆苑朝南带阳台一室一厅 超级大阳台 卫生间干湿分离 客厅都可做一个房间](https://www.douban.com/group/topic/174207224/)
+
+[大悦城，天堂软件园附近，庆隆苑小区，一室一厅一厨一卫，只要2320元，包物业。17605814007微信同号](https://www.douban.com/group/topic/175788708/)
+
+[2号线丰潭路古翠路双地铁口，西湖国际科技大厦旁，南都银座，一室一厨（管煤）一卫，超大约40m，喜欢的朋友扫码私信我](https://www.douban.com/group/topic/174306682/)
+
+[拱宸桥东，浙江树人大学，浙大城市学院《蔡马人家》精装一室一厅一厨一卫，家电齐全](https://www.douban.com/group/topic/175667879/)
+
+[（个人转租免中介费）临江花园单间独卫大阳台转租](https://www.douban.com/group/topic/173765626/)
+
+[庆隆苑合租一室出租，电梯房，近天堂软件园，地铁5号线2号线，价格实惠，一千出头一点就可租，可以长租，可做饭，看房联系15867056245微](https://www.douban.com/group/topic/174722244/)
+
+[大悦城旁边 美都广场 精装一室一厅 价格1610 价格便宜 随时看房 秒租房 需要看房联系17179799497](https://www.douban.com/group/topic/175822174/)
+
+[蚂蚁金服 浙商财富中心附近 山水人家带阳台卧室和带飘窗次卧 个人出租](https://www.douban.com/group/topic/172782315/)
+
+[西湖区，学院路地铁口翠苑二区一室一厅一厨一卫整租原户型的45平方。家具家电配齐的直租没有中介费诚心租房联系我18768958293](https://www.douban.com/group/topic/174417163/)
+
+[翠苑四区整租一室一厅一厨一卫，民水民电，无中介](https://www.douban.com/group/topic/175613159/)
+
+[城市学院树人大学边精品公寓押一付一独门独户民用水电价格便宜](https://www.douban.com/group/topic/152315298/)
+
+[个人房地铁房一室一卫1000](https://www.douban.com/group/topic/171763768/)
+
+[2号线 学院路 新德雅公寓 独立厨卫 房东急租 免中介月付](https://www.douban.com/group/topic/174944351/)
+
+[拱墅区庆隆苑次卧 独卫朝南单间 房东直租](https://www.douban.com/group/topic/174915853/)
+
+[靠近大悦城，美都一室一厅整套出租，仅需1510包物业，不要中介费](https://www.douban.com/group/topic/175817374/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园【东方福邸】朝南一室一厅，价格美丽](https://www.douban.com/group/topic/175203911/)
+
+[杭州拱墅区庆隆苑高层一室一厅转租](https://www.douban.com/group/topic/175678479/)
+
+[大悦城附近，美都广场便宜一室单身公寓，租金1600包物业，实图实价，速来秒杀。](https://www.douban.com/group/topic/175818209/)
+
+[5号线和睦站地铁口 整租一室一厅公寓 近城西银泰与大悦城 看房联系13456185772](https://www.douban.com/group/topic/175598677/)
+
+[【房屋出租】翠苑一区学院路地铁口精装一室一厅，近黄龙万科，天堂软件园，家电齐全，连包入住，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174429061/)
+
+[求2号线学院路到建国北路附近或5号线西文街到打铁关地铁口附近一室整租房子](https://www.douban.com/group/topic/175050142/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东，一室一厅一厨一卫一阳台，民用水电，随时看房，推荐全佣，好房不等人，有没有要换房子的朋友啊](https://www.douban.com/group/topic/175370523/)
+
+[整租：五号线，二号线，三坝，萍水街，天堂软件园，中天mcc附近，【西城纪】，精装修loft一室一厅，租金：2500/月。☀️](https://www.douban.com/group/topic/175687661/)
+
+[文一路教工路今日嘉园，精装修一室一厅，近地铁，近黄龙，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175299835/)
+
+[学院路地铁站，翠苑一区，朝南主卧，寻找可爱的小伙伴合租啦](https://www.douban.com/group/topic/174968959/)
+
+[紧急转租近2号线古翠路地铁口、支付宝大楼的龙都大厦大一室，朝南大阳台，可做饭](https://www.douban.com/group/topic/174283927/)
+
+[耀江文萃苑 一室一厅 独卫 管道煤气厨房 学院路地铁口 黄龙万科 枫华府第](https://www.douban.com/group/topic/175164851/)
+
+[租客转租 三宝郡庭 一室一厅 带个小餐厅 2700  位置莫干山路上 大悦城旁边 随时看房 13470429965](https://www.douban.com/group/topic/175304802/)
+
+[近黄龙万科文一物美学院春晓45平一室一厅带阳台](https://www.douban.com/group/topic/175620368/)
+
+[求租 西湖区翠苑或附近的房子](https://www.douban.com/group/topic/158345082/)
+
+[拱墅区 城西银泰城 浙大紫金港校区『西城美墅』朝南大主卧 独立厨卫](https://www.douban.com/group/topic/168255762/)
+
+[（房东直租：主卧带独卫、次卧3）官河锦庭，滨江西兴地铁口500M](https://www.douban.com/group/topic/174252458/)
+
+[城西银泰附近 大悦城旁 庆隆苑 朝南一室一厨一卫带大阳台 价格2700 房间干净清爽 可月付 随时看房](https://www.douban.com/group/topic/171699976/)
+
+[房东出租，天堂软件园，财大旁，近2号线，2000+可短租可月付有电梯](https://www.douban.com/group/topic/175058907/)
+
+[大悦城，黄龙打车起步价【三宝郡庭】朝南一室一厅，卫生间干湿分离，特价只要2300 ，可押一付一       实拍照片，随时看房1585818](https://www.douban.com/group/topic/175614290/)
+
+[西湖黄龙浙大玉泉北门庆丰公寓多套一室2100起 支付宝德力西天际中石油](https://www.douban.com/group/topic/175047651/)
+
+[黄龙零距离  丁香公寓   原户型一室出租房东直租   非诚勿扰  有意联系手机微信同号15158828692](https://www.douban.com/group/topic/174583145/)
+
+[二号线附近，铂澜大象成，耀江文萃苑，一室一厅一卫电梯房，无中介随时看房](https://www.douban.com/group/topic/175761799/)
+
+[（已租）有赞斜对面西湖家园公寓3楼电梯房单间直租，公用厨卫，出门公交直达蚂蚁金服汽车西站支付宝等1200](https://www.douban.com/group/topic/175455492/)
+
+[文三西路紫荆花路古墩路房东出租精装小区房](https://www.douban.com/group/topic/175179642/)
+
+[天堂软件园城西银泰附近 西城纪loft民宿两室一厅出租 押一付一 拎包入住](https://www.douban.com/group/topic/174419183/)
+
+[二号线古翠路地铁口翠苑四区精装一室一厅一厨一卫3500出租，租客稳定价格可谈，周边物美，电影院，健身房，看房联系18324429499微信同](https://www.douban.com/group/topic/174958814/)
+
+[个人转租。可以和直接房东续签。二号线学院路一室独卫带厨](https://www.douban.com/group/topic/175158097/)
+
+[地铁5号线和睦站，大悦城附近精装一室，特价出租。](https://www.douban.com/group/topic/174874276/)
+
+[翠苑怡景湾6楼朝南，标准一室一厅！物美大卖场，](https://www.douban.com/group/topic/172891583/)
+
+[近5号线和睦站地铁口，大悦城零距离，三宝郡庭一室一厅出租，房东直租，特价2000多点](https://www.douban.com/group/topic/175595861/)
+
+[房东直租龙湖天玺原户型独卫主卧，近海康、物联网街、信息港](https://www.douban.com/group/topic/174409366/)
+
+[【房屋出租】学院路地铁口枫华府第精装一室，绿城物业，家电齐全，近支付宝，蚂蚁金服，看房联系：18627856817（同微信）](https://www.douban.com/group/topic/174635830/)
+
+[翠苑一区朝南主卧2100找室友（可以情侣，可以好友，如果你预算高，单人也可以）](https://www.douban.com/group/topic/175102295/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园，香槟国际朝南一室独立厨卫，特价2300 ！包物业！！      ](https://www.douban.com/group/topic/175140093/)
+
+[庆云居一室一厅一卫一厨  '季度付2300可月付，V：lw1412670385](https://www.douban.com/group/topic/173758842/)
+
+[阿里西溪园区步行5分钟精装朝南北欧风单间](https://www.douban.com/group/topic/175570274/)
+
+[二号线学院路个人转租一室独卫带厨](https://www.douban.com/group/topic/175158334/)
+
+[【中天西城纪】一室一厅2600
+城西银泰旁，中天mcc.天堂软件园.莱茵矩阵，民用水电，包物业15068810656](https://www.douban.com/group/topic/174281089/)
+
+[宋城旁转塘家园朝南内卫带阳台1600](https://www.douban.com/group/topic/175737839/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175870166/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868731/)
+
+[浙大紫金港校区 三墩地铁口100米 转租一套独卫的房子 有共用厨房 随时搬走](https://www.douban.com/group/topic/155496245/)
+
+[房东直租  大悦城三宝郡庭 近天堂软件园乐提港远洋国际黄龙 中天cmc   城西银泰](https://www.douban.com/group/topic/175735615/)
+
+[城西银泰 大悦城 庆隆苑朝南 一室一厅  电梯房 ](https://www.douban.com/group/topic/174570198/)
+
+[城西银泰城 浙大紫金港校区 地铁口500米 朝南大主卧 独立厨卫 拎包入住](https://www.douban.com/group/topic/168254834/)
+
+[曲荷巷，朝南独卫，价格2200，旁边就是黄龙万科，离黄龙时代广场走路也只要几分钟，距离二号线学院路地铁口也不远，近黄龙](https://www.douban.com/group/topic/175758802/)
+
+[黄龙边上 汇丰公寓多套精装一室一厨一卫 朝南带阳台 位于天目山路玉古路口](https://www.douban.com/group/topic/175513576/)
+
+[西城纪精装一室loft，近天堂软件园，城西银泰，，印象城等等，现在年付只要2520包物业，无中介费！](https://www.douban.com/group/topic/175745257/)
+
+[翠苑附近，学院路旁边的，一室一厅一卫出租，天然气厨房。天堂软件园附近](https://www.douban.com/group/topic/172098752/)
+
+[金地悉呈国际社区-阿里黄龙-一室两室超大精装修](https://www.douban.com/group/topic/174031214/)
+
+[整租：拱墅区，浙江大学城市学院附近，石祥路，【万科智谷】，精装修loft一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175220981/)
+
+[二号线学院路站一室出租独门独户独卫价格1200，家电家具齐全，面积大，适合一到两个人入住，](https://www.douban.com/group/topic/175796378/)
+
+[朝南大开间、LOFT长租限时特价！！水网络物业全包1280元起！](https://www.douban.com/group/topic/150227538/)
+
+[黄龙商圈，中融城市花园，天目山路228号，一室独立厨卫，1800](https://www.douban.com/group/topic/175490619/)
+
+[［西湖区·留下·留和路］浙工大边上朝南整租一室，可月付无中介费，近和创园汇峰国际印象城](https://www.douban.com/group/topic/171162998/)
+
+[庆隆苑 一室朝南有阳台 独立厨卫 干湿分离卫生间、随时看房](https://www.douban.com/group/topic/175792005/)
+
+[古翠路地铁旁边 嘉绿苑 一室一厅 便宜出租 房东直租 无中介费](https://www.douban.com/group/topic/174794756/)
+
+[文二路一室一厅一厨一卫整租,对外整租1600! !临近东部软件园新华医院同德医院学院路地铁沈塘桥地铁一-公里 。](https://www.douban.com/group/topic/174605143/)
+
+[整租：西湖区，黄龙体育中心，阿里中心对面，蚂蚁金服附近，天目山路，【古荡新村】，精装修一室一厅，4楼朝南，租金：2800/月。](https://www.douban.com/group/topic/175383768/)
+
+[【房东直租】我是城西益乐新村90后小房东非中介免费看房靠近二号线丰潭路直租一室（一厨）一卫800元起](https://www.douban.com/group/topic/175873696/)
+
+[西湖区转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业！包物业！月租2250！  2250！ 17376532433v同号。](https://www.douban.com/group/topic/175868664/)
+
+[翠苑三区一室一厅，精装实用好房找个好租客](https://www.douban.com/group/topic/175074882/)
+
+[房东直租，翠苑三区一室一厅精精精装修好房～](https://www.douban.com/group/topic/175074811/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175869876/)
+
+[房东直租 大悦城正对面三宝郡庭 朝南一室一厅一厨一卫天然气厨房房子](https://www.douban.com/group/topic/174883843/)
+
+[翠苑三区 精装一室一厅 价格实惠 天堂软件园 物美 家具家电齐全 随时看房](https://www.douban.com/group/topic/175957172/)
+
+[【好房出租】世纪新城性价比超高一室一厅，紧挨古翠路地铁站，嘉绿苑，出行方便有意者联系我：17530344351【微信同号】](https://www.douban.com/group/topic/175938152/)
+
+[西湖三墩镇 房租出租](https://www.douban.com/group/topic/175954402/)
+
+[西湖三墩镇五幸家园 房屋出租](https://www.douban.com/group/topic/175954316/)
+
+[【房东直租】龙湖天玺原户型独卫主卧，近海康、聚光中心、江陵路、信息港、吉利](https://www.douban.com/group/topic/175924385/)
+
+[你好租房？](https://www.douban.com/group/topic/175953924/)
+
+[拱墅区和睦大悦城对面都景公寓。房东自住的精装一室一厅一厨一卫，现在出租，只要一千八。价格实惠。看房热线。。19883131791](https://www.douban.com/group/topic/175311435/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175913300/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/175891661/)
+
+[金色蓝庭一室整租，天堂软件园旁，文一路与古翠路交叉口，古翠路地铁站近城西银泰配套设施齐全，只要2880，15268750597电话微信同号](https://www.douban.com/group/topic/175903581/)
+
+[翠苑三区，一室整租，古翠路地铁，天堂软件园旁，物美大卖场旁，近城西银泰，配套设施齐全，只要2250，15268750597电话微信](https://www.douban.com/group/topic/175900442/)
+
+[房东直租益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/175944873/)
+
+[黄龙体育馆朝南50方一室一厨一卫 中融、天际大厦黄龙万科支付宝德力西](https://www.douban.com/group/topic/175919433/)
+
+[杭州公馆 精装朝南一室一厅 高端小区 教工路余杭塘路 近大悦城 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175914159/)
+
+[西湖三墩镇五幸家园出租一室一厅一厨一卫](https://www.douban.com/group/topic/175953558/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175105044/)
+
+[【西湖区留下西溪路上】朝南一室带阳台带独卫，可做饭，无中介费，近杨家牌楼珀莱雅汽车西站黄龙支付宝](https://www.douban.com/group/topic/174919368/)
+
+[花园岗小区精装修一室出租，汽车北站，万达广场附近，汽车城，大悦城，和睦地铁。包物业，无中介费，价格便宜1600急租，中介勿扰](https://www.douban.com/group/topic/175899959/)
+
+[学院路地铁口 黄龙万科 枫华府第 整租一室一厅一卫 高层朝南落地窗 无中介费 看房随时](https://www.douban.com/group/topic/174416191/)
+
+[黄龙万科附近，学院路地铁口，单身公寓，整租一室，独立厨卫](https://www.douban.com/group/topic/175671758/)
+
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/175923823/)
+
+[大悦城 城西银泰 和睦地铁站零距离 蓝钻天成精装标准一室一厅出租](https://www.douban.com/group/topic/175940597/)
+
+[大悦城 城西银泰 和睦地铁站零距离 蓝钻天成精装标准一室一厅出租](https://www.douban.com/group/topic/175940364/)
+
+[拱墅区 城西银泰城 浙大紫金港 朝南大主卧 独立厨卫 全景落地窗 拎包入住](https://www.douban.com/group/topic/168256683/)
+
+[房东直租嘉禾花苑小区房精装1200元拎包入住](https://www.douban.com/group/topic/175947359/)
+
+[中融城市花园 一室一厨一 公卫 黄龙时代广场 华鸿大厦 天际大厦 无中介费](https://www.douban.com/group/topic/175910885/)
+
+[【房东直租】拱墅区庆隆苑单间独立朝南出租](https://www.douban.com/group/topic/174899622/)
+
+[文新地铁站【政新花园】转租](https://www.douban.com/group/topic/175954404/)
+
+[学院路地铁口 华门世家 一室一厅出租 价格便宜 我不会坑你的 微信13633009029](https://www.douban.com/group/topic/175904368/)
+
+[城西银泰附近 大悦城旁 庆隆苑小区 朝南一室一厨一卫带大阳台 价格2700 实图拍摄 电梯房 可随时看房入住](https://www.douban.com/group/topic/166922239/)
+
+[文新文溪鼎园(商住楼)距2号线丰潭路地铁站步行1238m
+](https://www.douban.com/group/topic/175938130/)
+
+[西湖区天目山路 黄龙商圈 中融城市花园 一室一厨（独立天然气厨房）公卫](https://www.douban.com/group/topic/175933336/)
+
+[蓝钻天成 一室一厅 网红公寓楼 历史特价房 2200 和睦地铁口0距离 大悦城附近 ](https://www.douban.com/group/topic/175901125/)
+
+[西湖三墩镇出租一室一厅](https://www.douban.com/group/topic/175953425/)
+
+[整租一室一厅一卫单身公寓，可以押一付一，近火车东站三花国际云峰家园](https://www.douban.com/group/topic/171423736/)
+
+[［急求租］  一室一厅一厨一卫  学院路地铁口，华星，黄龙，翠苑，古翠路。5月底入住，预算2600-3000。](https://www.douban.com/group/topic/175881559/)
+
+[江干区～火车东站 地铁口 loft一室一厅 可烧饭 押一付一 没有中介费](https://www.douban.com/group/topic/171423132/)
+
+[大悦城旁一室一厅一厨一卫，拎包入住家电齐全3300/月联系电话13216236686（微信同号）](https://www.douban.com/group/topic/175793731/)
+
+[城西银泰城 浙大紫金港『西城美墅』朝南大主卧 黄金楼层 拎包入住](https://www.douban.com/group/topic/168257057/)
+
+[2号线学院路地铁口，天堂软件园附近，翠苑二区，精装一室一厅，民用水电，管道燃气，直租无中介费。](https://www.douban.com/group/topic/175943234/)
+
+[西湖区转塘（钱塘ONE）高品质loft单身公寓](https://www.douban.com/group/topic/175944433/)
+
+[金田花园一室一厅一厨一卫西城广场 华星时代广场===【金田花园】2250===](https://www.douban.com/group/topic/175904524/)
+
+[大悦城 城西银泰边上 楼下就是和睦地铁站 蓝钻天成精装一室田园风 好房不多](https://www.douban.com/group/topic/168242304/)
+
+[西湖区嘉禾花苑一室一卫有洗衣机空调热水器拎包入住](https://www.douban.com/group/topic/175946942/)
+
+[西湖区古墩路浙商财富中心对面嘉禾花苑拎包入住](https://www.douban.com/group/topic/175946451/)
+
+[🧡🧡🧡非中介，打铁关一站距离，近黄龙武林西湖，45方一室一厅，落地玻璃窗，有厨房可做饭，押一付一](https://www.douban.com/group/topic/170501634/)
+
+[【拱墅区-找室友】*【浙大城市学院周边】- 拱宸桥东地铁站附近也可](https://www.douban.com/group/topic/175932755/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175748637/)
+
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175958582/)
+
+[情侣租房，求地铁站三坝到学院路中的房子，离地铁站近，一室一厅一厨一卫，预算在3000以内的，预计5月底搬6月初搬，联系15088675415](https://www.douban.com/group/topic/175658150/)
+
+[【求租】黄龙、翠苑附近，一室独卫预算2500内](https://www.douban.com/group/topic/175911433/)
+
+[和家园超大一室独卫山景房去蚂蚁金服支付宝有赞黄龙阿里巴巴西溪园区方便](https://www.douban.com/group/topic/166984361/)
+
+[中豪晴园，一室一厅一卫一厨，精装修，靠近学院路地铁站，1550](https://www.douban.com/group/topic/175913082/)
+
+[下沙 云水 海天城 租房 1000，第一个月可付800](https://www.douban.com/group/topic/175922295/)
+
+[【Line 1/定安路地铁口】两室一厅  设计师好房直租 ！！ ](https://www.douban.com/group/topic/166732903/)
+
+[有房出租](https://www.douban.com/group/topic/173873590/)
+
+[五洲国际loft整租一室一厅，楼下超市，小吃街好吃不贵，旁边印象城，城西银泰，天堂软件园，步走到地铁文新站5分钟[调皮]](https://www.douban.com/group/topic/175310014/)
+
+[2400/月一室一厨一卫带阳台 1.8大床拎包入住庆隆苑 大悦城天堂软件园步行上班](https://www.douban.com/group/topic/175616565/)
+
+[杭州下沙租房 传媒学院附近 东城大厦 整租一室一厨一卫 房东直租无中介费服务费 可随时看房 只要1350](https://www.douban.com/group/topic/174642548/)
+
+[【求租】要求：黄龙、翠苑附近，一室独卫](https://www.douban.com/group/topic/175911327/)
+
+[三宝郡庭，出租，大悦城正对面，朝南一室一厅一厨一卫，天然气厨房，找一个爱家的你。17605814007微信同号](https://www.douban.com/group/topic/175900767/)
+
+[【出租】发展今日嘉园 一室整租 2400 民用水电 带天然气做饭 文一路教工路近黄龙体育中心 学院路地铁 中豪晴园 银马公寓 翠苑一区 古荡](https://www.douban.com/group/topic/175959472/)
+
+[【房东直租】我是城西益乐新村90后小房东非中介免费看房靠近二号线丰潭路直租一室（一厨）一卫800元起](https://www.douban.com/group/topic/175885065/)
+
+[2号线学院路地铁口300米  精装一室一厅 带阳台  价格实惠  随时看房 入住随时 看房联系。17605814007微信同号](https://www.douban.com/group/topic/175314184/)
+
+[汽车北站  学院府一室一厅一卫一阳台特价2580出租](https://www.douban.com/group/topic/175644280/)
+
+[文二路与丰潭路旁边，一室朝南独卫，价格2400，嘉绿西苑。西湖国际大厦，地铁口](https://www.douban.com/group/topic/173091972/)
+
+[天堂软件园正对面 一室单身公寓 价格2900包物业，有没有要的，有没有要的。](https://www.douban.com/group/topic/175640165/)
+
+[东站租房 1/4号线 彭埠地铁口 花园府 朝南主卧带阳台飘窗 房东直租 2200一月 看房热线17006428325同微](https://www.douban.com/group/topic/175886733/)
+
+[城西银泰附近求租](https://www.douban.com/group/topic/175885397/)
+
+[[非中介]滨江西兴！精装整租一室2500！独立厨卫！近海康吉利信息港！滨河地铁](https://www.douban.com/group/topic/175870461/)
+
+[[非中介]西兴地铁口 鑫都汇！整租一室大开间！朝南，独立厨卫！](https://www.douban.com/group/topic/174445010/)
+
+[学院路地铁口附近，新德雅公寓精装一室出租，带管道燃气厨房。](https://www.douban.com/group/topic/174411946/)
+
+[转塘，定山西苑，整租一室一厅，房东直租，年付27000。 包物业。   月租2250！   17376532433v同号。](https://www.douban.com/group/topic/175867610/)
+
+[2号线古翠路站地铁口一室一厅原户型拎包入住3500/月](https://www.douban.com/group/topic/175781004/)
+
+[武林门地铁口景湖苑…武林夜市杭州大厦武林门地铁皇后东魅省政府黄龙浙大二号线地铁口整租一室独卫带公用厨房](https://www.douban.com/group/topic/175910747/)
+
+[古翠路丰潭路地铁口  世纪新城一室精装   月租金2560  看房热线13970420953](https://www.douban.com/group/topic/175910070/)
+
+[翠苑物美楼上一室一厅一厨一卫公寓优惠出租](https://www.douban.com/group/topic/172742079/)
+
+[ 【出租】丰盛九玺整租一室朝南1700 西湖国际城 华彩国际 金地悦活轩墩祥街 三墩 紫萱大厦 紫郡东苑 三墩新天地 汇禾领府 桔子里 ](https://www.douban.com/group/topic/175963118/)
+
+[庆隆苑，一室一厨一卫，管道煤气厨房，欧式精装，1800可联系17681918802](https://www.douban.com/group/topic/175908606/)
+
+[西湖区 翠苑周边 一室一厅 一卫，温馨舒适浪漫，随时看房 ，领包入住 电联15216667256（微信同号）实图](https://www.douban.com/group/topic/175900129/)
+
+[拱墅区、大悦城旁边、和睦地铁口、三宝郡庭一室一厅。](https://www.douban.com/group/topic/175900393/)
+
+[二号线学院路站古荡湾新村一室整租独门独户独卫价格1200](https://www.douban.com/group/topic/175899222/)
+
+[滨江，长岛之春朝南侧卧1500](https://www.douban.com/group/topic/175311573/)
+
+[庆隆苑朝南带阳台一室一厅 超级大阳台 卫生间干湿分离 客厅都可做一个房间](https://www.douban.com/group/topic/174207145/)
+
+[翠苑附近，学院路旁边的，一室一厅一卫出租，天然气厨房。天堂软件园附近](https://www.douban.com/group/topic/172098709/)
+
+[押一付一  出租 天苑花园 一室一厅  近星光城 华星时代广场 支付宝 黄龙万科  古翠地铁口](https://www.douban.com/group/topic/175372894/)
+
+[翠苑一区精装标准一室一厅出租，房间客厅朝南，采光好，黄金楼层，带燃气，近学院路地铁站，出行便利，随时可看房，联系15867056245微信](https://www.douban.com/group/topic/175367386/)
+
+[【好房出租】今日嘉园，一室一厅，近学院路站，近御西湖，翠苑，黄龙万科，价格实惠，可月份，看房联系：18712601440（微信同号）](https://www.douban.com/group/topic/175485683/)
+
+[翠苑一区一室一厅1050精装修拎包入住15906669509](https://www.douban.com/group/topic/175362697/)
+
+[天目山路支付宝隔壁中融城市花园一室一卫2200/月 月付 德力西浙大汇丰现代国际](https://www.douban.com/group/topic/175358699/)
+
+[临近黄龙万科，支付宝旁边，文三路上，古荡新村东，一室一厅一厨一卫一阳台，民用水电，只要3280元，好房不等人，15268750597电话微信](https://www.douban.com/group/topic/175376771/)
+
+[二号线学院路地铁口一室整租独门独户独卫价格1200元，精装修拎包入住随时看房，家电齐全，采光通风隔音效果好](https://www.douban.com/group/topic/175896181/)
+
+[二号线古翠路金色蓝庭小区一室一厅精装修急租拎包入住随时看房](https://www.douban.com/group/topic/175895602/)
+
+[西湖区翠苑四区一室一厅精装修急租拎包入住随时看房](https://www.douban.com/group/topic/175895518/)
+
+[拱墅区 城市学院 中国铁建国际城 万科智谷 精装一室1500](https://www.douban.com/group/topic/175340860/)
+
+[城西银泰附近 大悦城旁 三宝郡庭  朝南一室一厅一厨一卫带管道煤气 房间干净清爽 价格3200 实图拍摄 可随时看房](https://www.douban.com/group/topic/166640822/)
+
+[城西益乐新村租房](https://www.douban.com/group/topic/175454802/)
+
+[【可短租/长租】无中介费房东直租真实房源，文二西路丰潭路口益乐新村南区，靠2号地铁丰潭站A出口零距离，配套设施齐全拎包入住](https://www.douban.com/group/topic/175451589/)
+
+[求2号线学院路到建国北路附近或5号线西文街到打铁关地铁口附近一室整租房子](https://www.douban.com/group/topic/175049986/)
+
+[杭州文三路黄龙天苑花园2400/月一室一厨一卫 华星时代 文都苑支付宝黄龙万科](https://www.douban.com/group/topic/175323215/)
+
+[【出租】拱墅庆隆苑朝南一室一厅独立厨卫干湿分离带大阳台3500大悦城旁边出行非常方便](https://www.douban.com/group/topic/172314139/)
+
+[之江家园  金街美地  云溪小镇旁 精装朝南大阳台 一室一厅  独厨独卫1580  房东直租](https://www.douban.com/group/topic/175881996/)
+
+[拱墅大悦城三宝郡庭一室一厅独卫近城西银泰绿城远洋国际中心](https://www.douban.com/group/topic/171773108/)
+
+[西城纪全明一室电梯房出租，房间朝南带大窗，可用空间宽阔，卫生间干湿分离，可做饭，近天堂软件园，随时可看房联系15867056245微信](https://www.douban.com/group/topic/175444901/)
+
+[求租拱墅区大悦城附近房屋](https://www.douban.com/group/topic/164766575/)
+
+[教工路上华门自由公寓电梯房，一室一厅一卫，大卧室带飘窗采光好，大客厅活动空间大，燃气厨房做饭，附近工商大学，电子科技大学，大悦城购物中心](https://www.douban.com/group/topic/174121659/)
+
+[房东直租  大悦城三宝郡庭  近远洋国际  乐提港  天堂软件园  中天cmc  黄龙 城西银泰](https://www.douban.com/group/topic/175735610/)
+
+[古翠路的地铁口附近世纪新城精装修一室](https://www.douban.com/group/topic/175233888/)
+
+[【好房出租】翠苑三区，精装一室，近2号线地铁古翠路站，物美，同德医院，天堂软件园，价格实惠，可月付，看房联系：18712601440（同V）](https://www.douban.com/group/topic/175400508/)
+
+[ 【好房出租】今日嘉园，一室一厅，交通便利，家具齐全，价格实惠。欢迎来电咨询17356518293（VX同号）](https://www.douban.com/group/topic/175311409/)
+
+[丰谭地铁口100米 近黄龙 南都银座 一室一厨一卫（管煤）朝南落地窗 房东直租 无中介费](https://www.douban.com/group/topic/175399196/)
+
+[求租求租求租](https://www.douban.com/group/topic/175201448/)
+
+[转塘家园 亚厦宋城旁 精装朝南大阳台 一室一厅  独厨独卫1880  房东直租](https://www.douban.com/group/topic/175881832/)
+
+[文一路教工路今日嘉园，精装修一室一厅，近地铁，近黄龙，看房联系18458872590，vx同号](https://www.douban.com/group/topic/175299783/)
+
+[【好房出租】翠苑一区 标准一室一厅 近学院路地铁口 黄龙万科 行知小学 颐高数码 看房提前联系：18457125227 微信同号](https://www.douban.com/group/topic/175401428/)
+
+[大悦城旁，三宝郡庭。一室一厅一厨一卫一阳台  价格2399。房东直租押一付一。实拍。](https://www.douban.com/group/topic/175284072/)
+
+[嘉禾花苑文三面路古墩路紫荆花路房东出租精装小区房](https://www.douban.com/group/topic/173428236/)
+
+[房东直租出租西湖区益乐新村四楼朝南一室一卫价950元](https://www.douban.com/group/topic/175274259/)
+
+[整租：西湖区，黄龙体育中心，阿里中心对面，蚂蚁金服附近，天目山路，【古荡新村】，精装修一室一厅，4楼朝南，租金：2800/月。](https://www.douban.com/group/topic/175383856/)
+
+[黄龙万科附近，中融城市花园，精装修，一室一卫，2680元一月](https://www.douban.com/group/topic/173629328/)
+
+[学院路地铁站，翠苑一区，朝南主卧，寻找可爱的小伙伴合租啦](https://www.douban.com/group/topic/174969407/)
+
+[近5号线地铁口，大悦城零距离，三宝郡庭中间套大套一室一厅便宜出租，房东直租](https://www.douban.com/group/topic/175251834/)
+
+[整租：拱墅区，浙江大学城市学院附近，石祥路，【万科智谷】，精装修loft一室一厅，租金：2000/月。](https://www.douban.com/group/topic/175266341/)
+
+[我是房东直租 三宝郡庭朝南一室一厅一厨一卫 天然气厨房 大悦城正对面](https://www.douban.com/group/topic/175660587/)
+
+[庆隆苑一室一厅  南北通透  房东直租，无中介费   电话：13588182991](https://www.douban.com/group/topic/175095007/)
+
+[押一付一 聚丰公寓 一室 黄龙中心 近花都 SOS 古越堂 π吧 德力西 支付宝 天际大厦](https://www.douban.com/group/topic/175366520/)
+
+[【蓝钻天成】整租一室一厅朝南45平可压一付一小区位于地铁5号线和睦站，商圈对面附近有和睦新村天阳武林邸德信西宸佳源银座三宝郡庭中粮大悦城](https://www.douban.com/group/topic/175612371/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175103568/)
+
+[三宝郡庭全新首次出租，轻奢风格，朝南一室一厅一厨一卫，天然气厨房，找一个爱家的你，近大悦城交通便利](https://www.douban.com/group/topic/175666590/)
+
+[国际青年社区云栖小镇钱江BLOCK 西湖大学 国际会展中心 阿里巴巴 中大银座 浙江音乐学院 中国美术学院 金街美地 象山国际 西湖区之江](https://www.douban.com/group/topic/175491915/)
+
+[蓝钻天成 一室一厅 网红公寓 45平 特价2000+ 和睦地铁口0距离 大悦城附近 汽车北站 ](https://www.douban.com/group/topic/175683444/)
+
+[地铁2号线中河北路，近浙一浙二邵逸夫，找室友](https://www.douban.com/group/topic/169850461/)
+
+[拱墅近万达，运河上街，可月租！！！押一付一，不是中介，民用水电，精装公寓，品牌家电，网络齐全，配有公区健身房。大学生或毕业两年内有优惠](https://www.douban.com/group/topic/174190873/)
+
+[西湖区大量房源出租 各种大小单间 独卫 公卫 合租房 独立厨卫,单身公寓 ](https://www.douban.com/group/topic/175194827/)
+
+[城西银泰5号线萍水街地铁 海蓝创智天地 中天mcc 天堂软件园【东方福邸】朝南一室一厅，价格美丽](https://www.douban.com/group/topic/175202853/)
+
+[求租，黄龙万科中心附近，一室独厨独卫，两人住](https://www.douban.com/group/topic/175357285/)
+
+[求租 情侣求租地铁沿线](https://www.douban.com/group/topic/174741122/)
+
+[小和山大学城旁，多套💰700-1150单间带独卫出租，月付无中介费，近浙工大和创园研究所汇峰印象城有赞黄龙](https://www.douban.com/group/topic/175278491/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/176046059/)
+
+[拱墅近万达，运河上街，北部软件园，铁建国际城可月租！！！押一付一，可养宠物不是中介，民用水电，精装公寓，品牌家电，网络齐全，拎包入住。](https://www.douban.com/group/topic/176063552/)
+
+[【房东直租 】文一路益乐新村，离2号线地铁近，单间独卫价格900一1200月付](https://www.douban.com/group/topic/176145915/)
+
+[文新地铁站【政新花园】转租](https://www.douban.com/group/topic/176149435/)
+
+[杭州公馆 豪装 一室一厅 高端小区 教工路 朝南带阳台 干湿分离 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/176102349/)
+
+[天苑大厦 支付宝 万塘汇旁天苑花园朝南一室一厅一厨一卫出租](https://www.douban.com/group/topic/176106021/)
+
+[中融城市花园50方一室一厨一卫一阳台小区环境好 支付宝德力西天际大厦](https://www.douban.com/group/topic/176096654/)
+
+[古翠路地铁站 嘉绿青苑 一室一厅一厨一卫 朝南带阳台 3600房东直租无中介费 完美适合情侣入住 随时看房](https://www.douban.com/group/topic/176118352/)
+
+[翠苑三区精装一室一厅家具齐全，拎包入住，看房联系15700183890，微信同号](https://www.douban.com/group/topic/176055880/)
+
+[黄龙万科附近，整租一室一厅一厨一卫带阳台，独门独户](https://www.douban.com/group/topic/176114082/)
+
+[大悦城 城西银泰 零距离和睦地铁站 蓝钻天成精装修一室出租](https://www.douban.com/group/topic/175744726/)
+
+[个人房东直租，一室一厅一厨一卫，房子在，大悦城隔壁，三宝郡庭，品牌家电齐全，拎包入住，天然气厨房，无任何中介费，15088764445](https://www.douban.com/group/topic/176017599/)
+
+[学院地铁站 新德雅公寓 一室一厨(管道煤气)一卫 特价2500 看房随时 免中介费 房东直租](https://www.douban.com/group/topic/176056781/)
+
+[无中介费 包物业 万科智谷 浙江大学城市学院旁 太阳城旁 精装一室 家具齐全 拎包入住 年付最低1000 仅此一套](https://www.douban.com/group/topic/176135291/)
+
+[城西益乐新村租房](https://www.douban.com/group/topic/176093844/)
+
+[学院路耀江文萃苑 精装修一室一厅一厨一卫 朝南 采光没问题](https://www.douban.com/group/topic/176082597/)
+
+[支付宝大楼 天际大厦 中融城市花园 一室一厨（独立天然气厨房） 1800 房东直租，特价房 13723555571](https://www.douban.com/group/topic/176068216/)
+
+[大悦城旁边 整租一室 全新装修家电家具齐全 朝南带阳台 看房13456185772](https://www.douban.com/group/topic/176132908/)
+
+[大悦城隔壁，房东直租，朝南一室一厅一厨一卫，直接和房东签合同，电话15088764445微信同号](https://www.douban.com/group/topic/176081014/)
+
+[自家房地铁房一室一卫1000](https://www.douban.com/group/topic/171762670/)
+
+[整租：五号线，二号线，三坝，萍水街，天堂软件园，中天mcc附近，【西城纪】，精装修loft一室一厅，租金：2500/月。☀️](https://www.douban.com/group/topic/176103138/)
+
+[庆隆苑 大悦城 天堂软件园边 精装一室一厅 管道燃气 特惠只要2400！ 1](https://www.douban.com/group/topic/176119559/)
+
+[房东直租益乐新村，押一付一，800-1500每月](https://www.douban.com/group/topic/176007713/)
+
+[翠苑一区，一室整租。学院路地铁50米，价格实惠便宜，需要的抓紧，手慢无。17605814007微信同号](https://www.douban.com/group/topic/176134510/)
+
+[地铁一号线 高沙地铁口 商业街 传媒学院旁  四季广场精装朝南一室一厅 随时可以看房 拎包入住15938689833V](https://www.douban.com/group/topic/171500994/)
+
+[文二路 学院路地铁口附近枫华府第一室单身公寓出租](https://www.douban.com/group/topic/176051538/)
+
+[城西银泰附近 大悦城旁 三宝郡庭  朝南一室一厅一厨一卫带管道煤气 房间干净清爽 价格3200 实图拍摄 可随时看房](https://www.douban.com/group/topic/166639867/)
+
+[传媒学院旁边，高沙文盛公寓一室独卫，清爽干净，包物业包网包水电。价位便宜，喜欢的联系15138244820](https://www.douban.com/group/topic/176132104/)
+
+[天堂软件园附近庆隆苑朝南一室带飘窗独立卫生间的只需2000一个月噢，联系电话13216236686（微信同号）](https://www.douban.com/group/topic/176057192/)
+
+[转塘 精装loft公寓 美院旁 钱塘one公寓](https://www.douban.com/group/topic/176057824/)
+
+[大悦城旁边 庆隆苑整租一室 独立厨卫 朝南 看房联系13456185772](https://www.douban.com/group/topic/176109410/)
+
+[ 【出租】丰盛九玺整租一室朝南1700 西湖国际城 华彩国际 金地悦活轩墩祥街 三墩 紫萱大厦 紫郡东苑 三墩新天地 汇禾领府 桔子里 ](https://www.douban.com/group/topic/175963031/)
+
+[天目山路学院路口中融城市花园朝南带阳台一室一厨一卫](https://www.douban.com/group/topic/176105619/)
+
+[三宝郡庭 一室一厅 独立厨卫 朝南房间 管道煤气 大悦城 庆隆苑 近和睦路地铁口](https://www.douban.com/group/topic/176043317/)
+
+[短租，拱墅区，拱宸桥绿城运河郡3350+拎包入住，月付，无中介费，随时看房](https://www.douban.com/group/topic/176090484/)
+
+[【好房出租】翠苑二区，精装一室一厅，可当两室，近2号线地铁学院路站，梧桐公寓，黄龙万科，看房联系：18712601440（同V）](https://www.douban.com/group/topic/176005736/)
+
+[西湖区益乐新村北区，整租一室一卫，独门独户](https://www.douban.com/group/topic/171334767/)
+
+[丰潭路2号线 矩阵国际 天堂软件园 中天MCC 数娱大厦 财经大学 城西银泰温馨大一居室](https://www.douban.com/group/topic/176096205/)
+
+[大悦城 城西银泰 天堂软件园边上 庆隆苑一室出租](https://www.douban.com/group/topic/175746202/)
+
+[黄龙核心公寓有人租吗？ 欧美中心，一居室，可以便宜点出租](https://www.douban.com/group/topic/176136593/)
+
+[【招女生】翠苑一区1400，朝南超大阳台，2号线学院路地铁5分钟，文一文二路学院路](https://www.douban.com/group/topic/169024251/)
+
+[【出租】发展今日嘉园 一室整租 2400 民用水电 带天然气做饭 文一路教工路近黄龙体育中心 学院路地铁 中豪晴园 银马公寓 翠苑一区 古荡](https://www.douban.com/group/topic/175959392/)
+
+[今日推荐特价房2套
+1⃣️庆隆苑，一室一厨一卫2450¥，管道煤气厨房，欧式风格，家具家电齐全，拎包即可入住。](https://www.douban.com/group/topic/176091356/)
+
+[西湖区.转塘（钱塘one）精装loft公寓](https://www.douban.com/group/topic/175970483/)
+
+[中天西城纪 精装一室loft 近城西银泰 天堂软件园 中天MCC 价格实惠 看房联系151@0380@1065微信同号](https://www.douban.com/group/topic/174720591/)
+
+[杭州公馆 精装朝南一室一厅 高端小区 教工路余杭塘路 近大悦城 看房联系182·6887·3800微信同号](https://www.douban.com/group/topic/175913986/)
+
+[大悦城 翠苑物美 三宝郡庭 精装一室 首次出租 价格实惠 随时看房](https://www.douban.com/group/topic/176021282/)
+
+[花园岗小区精装修一室出租，汽车北站，万达广场附近，汽车城，大悦城，和睦地铁。包物业，无中介费，价格便宜1500急租，中介勿扰](https://www.douban.com/group/topic/175901306/)
+
+[房东直租文三西路古墩路口嘉禾花苑精装一室一厨一卫家电齐全](https://www.douban.com/group/topic/169229432/)
+
+[蓝钻天成 单身公寓 一室整租 五号线和睦站地铁口 近大悦城 2550](https://www.douban.com/group/topic/176091734/)
+
+[美都广场 精装一室 大悦城附近 近远洋国际 吉兴公寓 2300＋](https://www.douban.com/group/topic/176034120/)
+
+[拱墅区、大悦城旁边、和睦地铁口、三宝郡庭一室一厅带天然气。](https://www.douban.com/group/topic/176121559/)
+
+[房东直租古墩路浙商财富中心旁嘉禾花苑一室一厨一卫，家电设施齐全](https://www.douban.com/group/topic/169231182/)
+
+[房东直租古墩路财富中心蘑菇街对面嘉禾花苑精装单身公寓一室一厨一卫](https://www.douban.com/group/topic/169291283/)
+
+[黄龙万科 支付宝附近 古翠路单间独立厨卫出租 拎包住](https://www.douban.com/group/topic/175958579/)
+
+[房东直租](https://www.douban.com/group/topic/176052754/)
+
+[丽都会 国际花园 求是大厦 黄龙体育馆 黄龙万科中心 一室一卫 一室一厅一卫 包物业宽带 3500起精装修 无中介费](https://www.douban.com/group/topic/176276102/)
+
+[近大悦城三宝郡庭朝南一室阳台独立厨卫价格便宜只要2000看房联系](https://www.douban.com/group/topic/174251325/)
+
+[地铁二号线三墩站 品牌公寓直租 不收中介费 押一付一 可以短租](https://www.douban.com/group/topic/176375638/)
+
+[翠苑三区 精装一室一厅 天堂软件园 物美 价格实惠 设施齐全 拎包入住 随时看房](https://www.douban.com/group/topic/176338418/)
+
+[翠苑三区，精装一室一厅出租，2500/月](https://www.douban.com/group/topic/176333577/)
+
+[学院路地铁口 枫华府第 整租一室朝南带阳台 看房方便的 民用水电电梯房](https://www.douban.com/group/topic/176330330/)
+
+[黄龙起步价大悦城一室一厅阳台大开只要3000+超级便宜看房请联系评论区](https://www.douban.com/group/topic/176326180/)
+
+[翠苑三区 天堂软件园 物美 同德 精装标准一室一厅 价格实惠 拎包入住 随时看房  151:0380:1065微信同号](https://www.douban.com/group/topic/176409785/)
+
+[西湖区翠苑三区一室一厅精装修出租，TEL&V一三二八五七六九八三零](https://www.douban.com/group/topic/176403938/)
+
+[拱墅区 大悦城 大关中学 三宝郡庭一室一厅一卫一厨一阳台包物业电梯房民用电2420每月季度付，无中介费](https://www.douban.com/group/topic/176382404/)
 
